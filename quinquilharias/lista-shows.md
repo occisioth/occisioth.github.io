@@ -1,126 +1,126 @@
 ## 2009
 
-_19/03_ - Elma no MDC Lab #1  
-_15/05_ - Heaven & Hell no Credicard Hall  
-_07/11_ - [Maquinaria Fest] Faith no More na Chácara do Jockey  
-_07/11_ - [Maquinaria Fest] Sepultura na Chácara do Jockey  
-_07/11_ - [Maquinaria Fest] Deftones na Chácara do Jockey  
-_07/11_ - [Maquinaria Fest] Jane's Addiction na Chácara do Jockey  
+__19/03__ - Elma no MDC Lab #1  
+__15/05__ - Heaven & Hell no Credicard Hall  
+__07/11__ - [Maquinaria Fest] Faith no More na Chácara do Jockey  
+__07/11__ - [Maquinaria Fest] Sepultura na Chácara do Jockey  
+__07/11__ - [Maquinaria Fest] Deftones na Chácara do Jockey  
+__07/11__ - [Maquinaria Fest] Jane's Addiction na Chácara do Jockey  
 
 ## 2010
 
-_24/04_ - Megadeth no Credicard Hall  
-_15/05_ - [KoolMetal Fest] Napalm Death no Espaço Victory  
-_15/05_ - [KoolMetal Fest] Suffocation no Espaço Victory  
-_15/05_ - [KoolMetal Fest] Violator no Espaço Victory  
-_15/05_ - [KoolMetal Fest] D.E.R no Espaço Victory  
-_15/05_ - [KoolMetal Fest] Western Days no Espaço Victory  
-_16/11_ - Massive Attack no HSBC Hall  
-_16/11_ - Martina Topley-Bird no HSBC Hall  
+__24/04__ - Megadeth no Credicard Hall  
+__15/05__ - [KoolMetal Fest] Napalm Death no Espaço Victory  
+__15/05__ - [KoolMetal Fest] Suffocation no Espaço Victory  
+__15/05__ - [KoolMetal Fest] Violator no Espaço Victory  
+__15/05__ - [KoolMetal Fest] D.E.R no Espaço Victory  
+__15/05__ - [KoolMetal Fest] Western Days no Espaço Victory  
+__16/11__ - Massive Attack no HSBC Hall  
+__16/11__ - Martina Topley-Bird no HSBC Hall  
 
 ## 2011
 
-_02/07_ - UDR no Inferno Club  
+__02/07__ - UDR no Inferno Club  
 
 ## 2012
 
-_11/03_ - Morrissey no Espaço das Américas  
-_11/03_ - Kristeen Young no Espaço das Américas  
-_07/04_ - [Lollapalooza] Foo Fighters no Jockey Clube  
+__11/03__ - Morrissey no Espaço das Américas  
+__11/03__ - Kristeen Young no Espaço das Américas  
+__07/04__ - [Lollapalooza] Foo Fighters no Jockey Clube  
 
 ## 2013
 
-_29/03_ - [Lollapalooza] Of Monsters and Men no Jockey Clube  
-_29/03_ - [Lollapalooza] Crystal Castles no Jockey Clube  
-_29/03_ - [Lollapalooza] The Flamimg Lips no Jockey Clube  
-_29/03_ - [Lollapalooza] Deadmau5 no Jockey Clube  
-_29/03_ - [Lollapalooza] Knife Party no Jockey Clube  
-_30/03_ - [Lollapalooza] Tomahawk no Jockey Clube  
-_30/03_ - [Lollapalooza] Queens of The Stone Age no Jockey Clube  
-_30/03_ - [Lollapalooza] A Perfect Circle no Jockey Clube  
-_30/03_ - [Lollapalooza] The Black Keys no Jockey Clube  
-_31/03_ - [Lollapalooza] Puscifer no Jockey Clube  
-_31/03_ - [Lollapalooza] Kaiser Chiefs no Jockey Clube  
-_31/03_ - [Lollapalooza] The Hives no Jockey Clube  
-_31/03_ - [Lollapalooza] Pearl Jam no Jockey Clube  
-_10/04_ - DOWN no Carioca Club  
-_11/04_ - Carcass no Carioca Club  
-_04/08_ - [Extreme Hate Festival] Vader no Carioca Club  
-_04/08_ - [Extreme Hate Festival] Suffocation [2x] no Carioca Club  
-_04/08_ - [Extreme Hate Festival] Marduk no Carioca Club  
-_20/09_ - [Live Music Rocks] Iron Maiden na Arena Anhembi  
-_20/09_ - [Live Music Rocks] Ghost B.C. na Arena Anhembi  
-_20/09_ - [Live Music Rocks] Slayer na Arena Anhembi  
-_11/10_ - Black Sabbath no Campo de Marte   
-_11/10_ - Megadeth [2x] no Campo de Marte  
-_13/10_ - Anathema no Carioca Club   
-_16/11_ - Meshuggah no Carioca Club   
-_20/11_ - CocoRosie  no Cine Jóia  
+__29/03__ - [Lollapalooza] Of Monsters and Men no Jockey Clube  
+__29/03__ - [Lollapalooza] Crystal Castles no Jockey Clube  
+__29/03__ - [Lollapalooza] The Flamimg Lips no Jockey Clube  
+__29/03__ - [Lollapalooza] Deadmau5 no Jockey Clube  
+__29/03__ - [Lollapalooza] Knife Party no Jockey Clube  
+__30/03__ - [Lollapalooza] Tomahawk no Jockey Clube  
+__30/03__ - [Lollapalooza] Queens of The Stone Age no Jockey Clube  
+__30/03__ - [Lollapalooza] A Perfect Circle no Jockey Clube  
+__30/03__ - [Lollapalooza] The Black Keys no Jockey Clube  
+__31/03__ - [Lollapalooza] Puscifer no Jockey Clube  
+__31/03__ - [Lollapalooza] Kaiser Chiefs no Jockey Clube  
+__31/03__ - [Lollapalooza] The Hives no Jockey Clube  
+__31/03__ - [Lollapalooza] Pearl Jam no Jockey Clube  
+__10/04__ - DOWN no Carioca Club  
+__11/04__ - Carcass no Carioca Club  
+__04/08__ - [Extreme Hate Festival] Vader no Carioca Club  
+__04/08__ - [Extreme Hate Festival] Suffocation [2x] no Carioca Club  
+__04/08__ - [Extreme Hate Festival] Marduk no Carioca Club  
+__20/09__ - [Live Music Rocks] Iron Maiden na Arena Anhembi  
+__20/09__ - [Live Music Rocks] Ghost B.C. na Arena Anhembi  
+__20/09__ - [Live Music Rocks] Slayer na Arena Anhembi  
+__11/10__ - Black Sabbath no Campo de Marte   
+__11/10__ - Megadeth [2x] no Campo de Marte  
+__13/10__ - Anathema no Carioca Club   
+__16/11__ - Meshuggah no Carioca Club   
+__20/11__ - CocoRosie  no Cine Jóia  
 
 ## 2014
 
-_24/01_ - EMICIDA + Don L  no Cine Joia  
-_21/04_ - Torture Squad no Carioca Club   
-_21/04_ - Hypocrisy no Carioca Club  
-_18/05_ - Rotting Christ no Hangar 110  
-_24/05_ - Andy McKee no Bourbon Street  
-_03/08_ - The Swords no Cine Jóia  
-_03/08_ - Clutch no Cine Jóia  
+__24/01__ - EMICIDA + Don L  no Cine Joia  
+__21/04__ - Torture Squad no Carioca Club   
+__21/04__ - Hypocrisy no Carioca Club  
+__18/05__ - Rotting Christ no Hangar 110  
+__24/05__ - Andy McKee no Bourbon Street  
+__03/08__ - The Swords no Cine Jóia  
+__03/08__ - Clutch no Cine Jóia  
 
 ## 2015
 
-_07/03_ - Saturndust no Dissenso Lounge  
-_07/03_ - Huey no Dissenso Lounge  
-_07/03_ - E A Terra Nunca Me Pareceu Tão Distante no Dissenso Lounge  
-_04/04_ - Jupiterian no Morfeus Club  
-_04/04_ - Death by Starvation no Morfeus Club  
-_04/04_ - Hierofante no Morfeus Club  
-_05/04_ - Desalmado no Morfeus Club  
-_05/04_ - Meant to Suffer no Morfeus Club  
-_10/04_ - Herod no Serralheria  
-_09/05_ - E A Terra Nunca Me Pareceu Tão Distante na Casa do Mancha  
-_14/05_ - Jair Naves canta Patti Smith no SESC Vila Mariana  
-_30/05_ - Mark Lanegan no Cine Jóia  
-_31/05_ - Mars Red Sky no Inferno Club  
-_31/05_ - Saturndust no Inferno Club  
-_31/05_ - Hammerhead Blues no Inferno Club  
-_31/05_ - Hierofante no Inferno Club  
-_24/09_ - Faith no More no Espaço das Americas  
-_26/09_ - Lee Ranaldo no Largo da Batata  
-_26/09_ - Cidadão Instigado no Largo da Batata  
-_27/09_ - Huey no Centro Cultural São Paulo  
-_30/09_ - Steve Shelley no Associação Cultural Santa Cecilia  
-_13/10_ - Huey na Alameda Rio Claro  
-_25/10_ - Boogarins no Mirante 9 de Julho  
-_31/10_ - Noala no Dissenso Studio  
-_31/10_ - Saturndust no Dissenso Studio  
-_31/10_ - Crushing Darkness no Dissenso Studio  
-_31/10_ - Hierofante no Dissenso Studio  
-_26/11_ - Herod na Casa do Mancha  
-_26/11_ - Loomer na Casa do Mancha  
-_04/12_ - Elza Soares no SESC Pompéia  
-_05/12_ - Ruido/mm na Casa do Mancha  
-_05/12_ - Mais Valia na Casa do Mancha  
+__07/03__ - Saturndust no Dissenso Lounge  
+__07/03__ - Huey no Dissenso Lounge  
+__07/03__ - E A Terra Nunca Me Pareceu Tão Distante no Dissenso Lounge  
+__04/04__ - Jupiterian no Morfeus Club  
+__04/04__ - Death by Starvation no Morfeus Club  
+__04/04__ - Hierofante no Morfeus Club  
+__05/04__ - Desalmado no Morfeus Club  
+__05/04__ - Meant to Suffer no Morfeus Club  
+__10/04__ - Herod no Serralheria  
+__09/05__ - E A Terra Nunca Me Pareceu Tão Distante na Casa do Mancha  
+__14/05__ - Jair Naves canta Patti Smith no SESC Vila Mariana  
+__30/05__ - Mark Lanegan no Cine Jóia  
+__31/05__ - Mars Red Sky no Inferno Club  
+__31/05__ - Saturndust no Inferno Club  
+__31/05__ - Hammerhead Blues no Inferno Club  
+__31/05__ - Hierofante no Inferno Club  
+__24/09__ - Faith no More no Espaço das Americas  
+__26/09__ - Lee Ranaldo no Largo da Batata  
+__26/09__ - Cidadão Instigado no Largo da Batata  
+__27/09__ - Huey no Centro Cultural São Paulo  
+__30/09__ - Steve Shelley no Associação Cultural Santa Cecilia  
+__13/10__ - Huey na Alameda Rio Claro  
+__25/10__ - Boogarins no Mirante 9 de Julho  
+__31/10__ - Noala no Dissenso Studio  
+__31/10__ - Saturndust no Dissenso Studio  
+__31/10__ - Crushing Darkness no Dissenso Studio  
+__31/10__ - Hierofante no Dissenso Studio  
+__26/11__ - Herod na Casa do Mancha  
+__26/11__ - Loomer na Casa do Mancha  
+__04/12__ - Elza Soares no SESC Pompéia  
+__05/12__ - Ruido/mm na Casa do Mancha  
+__05/12__ - Mais Valia na Casa do Mancha  
 
 ## 2016
 
-_26/03_ - Jupiterian no Estudio Som  
-_26/03_ - Mythological Cold Towers no Estudio Som  
-_09/07_ - Magnetita no Centro Cultural Zapata   
-_09/07_ - Umbilichaos no Centro Cultural Zapata  
-_09/07_ - Crushing Darkness no Centro Cultural Zapata   
-_10/07_ - Nvblado na Clash Club   
-_10/07_ - E a terra Nunca me Pareceu Tão Distante na Clash Club  
-_10/07_ - Deafheaven na Clash Club  
-_04/09_ - [Overload Music Festival] Katatonia no Carioca Club  
-_04/09_ - [Overload Music Festival] Alcest no Carioca Club  
-_04/09_ - [Overload Music Festival] Labirinto no Carioca Club  
-_04/09_ - [Overload Music Festival] Vincent Cavanagh no Carioca Club  
+__26/03__ - Jupiterian no Estudio Som  
+__26/03__ - Mythological Cold Towers no Estudio Som  
+__09/07__ - Magnetita no Centro Cultural Zapata   
+__09/07__ - Umbilichaos no Centro Cultural Zapata  
+__09/07__ - Crushing Darkness no Centro Cultural Zapata   
+__10/07__ - Nvblado na Clash Club   
+__10/07__ - E a terra Nunca me Pareceu Tão Distante na Clash Club  
+__10/07__ - Deafheaven na Clash Club  
+__04/09__ - [Overload Music Festival] Katatonia no Carioca Club  
+__04/09__ - [Overload Music Festival] Alcest no Carioca Club  
+__04/09__ - [Overload Music Festival] Labirinto no Carioca Club  
+__04/09__ - [Overload Music Festival] Vincent Cavanagh no Carioca Club  
 
 ### upcoming
-_07/09_ - [Maximus Festival] Disturbed no Autódromo de Interlagos   
-_07/09_ - [Maximus Festival] Marilyn Manson no Autódromo de Interlagos  
-_07/09_ - [Maximus Festival] Rammstein no Autódromo de Interlagos  
-_21/09_ - Speranza Spalding no Cine Joia  
-_09/10_ - Mayhem na Clash Club  
-_22/10_ - The Black Dahlia Murder na Clash Club  
+__07/09__ - [Maximus Festival] Disturbed no Autódromo de Interlagos   
+__07/09__ - [Maximus Festival] Marilyn Manson no Autódromo de Interlagos  
+__07/09__ - [Maximus Festival] Rammstein no Autódromo de Interlagos  
+__21/09__ - Speranza Spalding no Cine Joia [comprar] (https://cinejoia.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PERFORMANCEID=256&WebsalesChannelKey=internet)  
+__09/10__ - Mayhem na Clash Club [comprar] (http://www.clubedoingresso.com/mayhem)    
+__22/10__ - The Black Dahlia Murder na Clash Club [comprar] (http://www.clubedoingresso.com/theblackdahliamurder-sp)  
