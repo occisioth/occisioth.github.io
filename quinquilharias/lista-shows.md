@@ -124,3 +124,4 @@ __07/09__ - [Maximus Festival] Rammstein no Autódromo de Interlagos
 __21/09__ - Speranza Spalding no Cine Joia [comprar] (https://cinejoia.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PERFORMANCEID=256&WebsalesChannelKey=internet)  
 __09/10__ - Mayhem na Clash Club [comprar] (http://www.clubedoingresso.com/mayhem)    
 __22/10__ - The Black Dahlia Murder na Clash Club [comprar] (http://www.clubedoingresso.com/theblackdahliamurder-sp)  
+__02/12__ - Descendents no Carioca Club [comprar] (https://pixelticket.com.br/evento/descendents-sao-paulo-02-12)  
