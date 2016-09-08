@@ -115,7 +115,7 @@ __10/07__ - Deafheaven na Clash Club
 __04/09__ - [Overload Music Festival] Katatonia no Carioca Club  
 __04/09__ - [Overload Music Festival] Alcest no Carioca Club  
 __04/09__ - [Overload Music Festival] Labirinto no Carioca Club  
-__04/09__ - [Overload Music Festival] Vincent Cavanagh no Carioca Club 
+__04/09__ - [Overload Music Festival] Vincent Cavanagh no Carioca Club. 
 __07/09__ - [Maximus Festival] Disturbed no Autódromo de Interlagos   
 __07/09__ - [Maximus Festival] Marilyn Manson no Autódromo de Interlagos  
 __07/09__ - [Maximus Festival] Rammstein no Autódromo de Interlagos  
