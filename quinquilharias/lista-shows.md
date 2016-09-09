@@ -115,12 +115,13 @@ __10/07__ - Deafheaven na Clash Club
 __04/09__ - [Overload Music Festival] Katatonia no Carioca Club  
 __04/09__ - [Overload Music Festival] Alcest no Carioca Club  
 __04/09__ - [Overload Music Festival] Labirinto no Carioca Club  
-__04/09__ - [Overload Music Festival] Vincent Cavanagh no Carioca Club. 
-__07/09__ - [Maximus Festival] Disturbed no Autódromo de Interlagos   
+__04/09__ - [Overload Music Festival] Vincent Cavanagh no Carioca Club  
+__07/09__ - [Maximus Festival] Disturbed no Autódromo de Interlagos  
 __07/09__ - [Maximus Festival] Marilyn Manson no Autódromo de Interlagos  
 __07/09__ - [Maximus Festival] Rammstein no Autódromo de Interlagos  
 
 ### upcoming
+__10/09__ - Lee Ranaldo no SESC Belenzinho 
 __21/09__ - Speranza Spalding no Cine Joia [comprar] (https://cinejoia.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PERFORMANCEID=256&WebsalesChannelKey=internet)  
 __09/10__ - Mayhem na Clash Club [comprar] (http://www.clubedoingresso.com/mayhem)    
 __22/10__ - The Black Dahlia Murder na Clash Club [comprar] (http://www.clubedoingresso.com/theblackdahliamurder-sp)  
