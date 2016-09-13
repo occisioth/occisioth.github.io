@@ -127,4 +127,4 @@ __24/09__ - MC Carol no The Sensation
 __09/10__ - Mayhem na Clash Club [comprar] (http://www.clubedoingresso.com/mayhem)    
 __22/10__ - The Black Dahlia Murder na Clash Club [comprar] (http://www.clubedoingresso.com/theblackdahliamurder-sp)  
 __27/11__ - Adrian Belew Powertrio na Carioca Club  [comprar] (http://www.clubedoingresso.com/adrianbelewpowertrio)  
-__02/12__ - Descendents no Carioca Club [comprar] (https://pixelticket.com.br/evento/descendents-sao-paulo-02-12)  
+__02/12__ - Yasiin Bey (Mos Def) no Cine Joia [comprar] (https://cinejoia.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PERFORMANCEID=279&WebsalesChannelKey=internet)    
