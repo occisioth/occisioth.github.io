@@ -122,9 +122,7 @@ __07/09__ - [Maximus Festival] Rammstein no Autódromo de Interlagos
 __11/09__ - Lee Ranaldo no SESC Belenzinho  
 
 ### upcoming  
-__21/09__ - Speranza Spalding no Cine Joia [comprar] (https://cinejoia.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PERFORMANCEID=256&WebsalesChannelKey=internet)  
-__24/09__ - MC Carol no The Sensation  
 __09/10__ - Mayhem na Clash Club [comprar] (http://www.clubedoingresso.com/mayhem)    
 __22/10__ - The Black Dahlia Murder na Clash Club [comprar] (http://www.clubedoingresso.com/theblackdahliamurder-sp)  
-__27/11__ - Adrian Belew Powertrio na Carioca Club  [comprar] (http://www.clubedoingresso.com/adrianbelewpowertrio)  
+__27/11__ - Adrian Belew Powertrio na Carioca Club  
 __02/12__ - Yasiin Bey (Mos Def) no Cine Joia [comprar] (https://cinejoia.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PERFORMANCEID=279&WebsalesChannelKey=internet)    
