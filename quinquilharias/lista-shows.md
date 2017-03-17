@@ -129,10 +129,10 @@ __24/03__ - Tsjuder na Clash Club [comprar](http://www.clubedoingresso.com/tsjud
 __24/03__ - Pátria na Clash Club  
 __24/03__ - Justabeli na Clash Club  
 __09/04__ - Opeth no Carioca Club [comprar](http://www.clubedoingresso.com/opeth)  
+__09/05__ - Prophets of Rage na Audio SP [comprar](http://www.livepass.com.br/event/prophets-of-rage/)
 __13/05__ - [Maximus Festival] Linkin Park na Autodromo Interlagos [comprar](http://www.livepass.com.br/event/maximus-2017/)  
 __13/05__ - [Maximus Festival] Slayer na Autodromo Interlagos  
 __13/05__ - [Maximus Festival] Rob Zombie na Autodromo Interlagos  
-__13/05__ - [Maximus Festival] Prophets of Rage na Autodromo Interlagos  
 __13/05__ - [Maximus Festival] Ghost na Autodromo Interlagos  
 __14/06__ - Moonspell na Clash Club [comprar](http://www.clubedoingresso.com/moonspell-sp)  
 __12/08__ - Anathema na Carioca Club [comprar]  
