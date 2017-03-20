@@ -78,14 +78,14 @@ __04/04__ - Hierofante no Morfeus Club
 __05/04__ - Desalmado no Morfeus Club  
 __05/04__ - Meant to Suffer no Morfeus Club  
 __10/04__ - Herod no Serralheria  
-__09/05__ - E A Terra Nunca Me Pareceu Tão Distante na Casa do Mancha  
+__09/05__ - E A Terra Nunca Me Pareceu Tão Distante [2x] na Casa do Mancha  
 __14/05__ - Jair Naves canta Patti Smith no SESC Vila Mariana  
 __30/05__ - Mark Lanegan no Cine Jóia  
 __31/05__ - Mars Red Sky no Inferno Club  
 __31/05__ - Saturndust no Inferno Club  
 __31/05__ - Hammerhead Blues no Inferno Club  
 __31/05__ - Hierofante no Inferno Club  
-__24/09__ - Faith no More no Espaço das Americas  
+__24/09__ - Faith no More [2x] no Espaço das Americas  
 __26/09__ - Lee Ranaldo no Largo da Batata  
 __26/09__ - Cidadão Instigado no Largo da Batata  
 __27/09__ - Huey no Centro Cultural São Paulo  
@@ -119,7 +119,7 @@ __04/09__ - [Overload Music Festival] Vincent Cavanagh no Carioca Club
 __07/09__ - [Maximus Festival] Disturbed no Autódromo de Interlagos  
 __07/09__ - [Maximus Festival] Marilyn Manson no Autódromo de Interlagos  
 __07/09__ - [Maximus Festival] Rammstein no Autódromo de Interlagos  
-__11/09__ - Lee Ranaldo no SESC Belenzinho  
+__11/09__ - Lee Ranaldo [2x] no SESC Belenzinho  
 __27/11__ - Adrian Belew Powertrio na Carioca Club  
 
 ## 2017
