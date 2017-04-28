@@ -125,7 +125,7 @@ __27/11__ - Adrian Belew Powertrio na Carioca Club
 ## 2017
 
 ### upcoming  
-__13/05__ - [Maximus Festival] Prophets of Rage a Autodromo Interlagos 
+__13/05__ - [Maximus Festival] Prophets of Rage a Autodromo Interlagos  
 __13/05__ - [Maximus Festival] Linkin Park na Autodromo Interlagos  
 __13/05__ - [Maximus Festival] Slayer na Autodromo Interlagos  
 __13/05__ - [Maximus Festival] Rob Zombie na Autodromo Interlagos  
