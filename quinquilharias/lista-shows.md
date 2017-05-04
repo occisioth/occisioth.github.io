@@ -110,7 +110,7 @@ __09/07__ - Magnetita no Centro Cultural Zapata
 __09/07__ - Umbilichaos no Centro Cultural Zapata  
 __09/07__ - Crushing Darkness no Centro Cultural Zapata   
 __10/07__ - Nvblado na Clash Club   
-__10/07__ - E a terra Nunca me Pareceu Tão Distante na Clash Club  
+__10/07__ - E a terra Nunca me Pareceu Tão Distante [3x] na Clash Club  
 __10/07__ - Deafheaven na Clash Club  
 __04/09__ - [Overload Music Festival] Katatonia no Carioca Club  
 __04/09__ - [Overload Music Festival] Alcest no Carioca Club  
@@ -123,6 +123,9 @@ __11/09__ - Lee Ranaldo [2x] no SESC Belenzinho
 __27/11__ - Adrian Belew Powertrio na Carioca Club  
 
 ## 2017
+
+__30/04__ - National no Dissenso Lounge  
+__30/04__ - Labirinto [2x] no Dissenso Lounge  
 
 ### upcoming  
 __13/05__ - [Maximus Festival] Prophets of Rage a Autodromo Interlagos  
