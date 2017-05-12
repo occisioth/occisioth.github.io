@@ -126,13 +126,8 @@ __27/11__ - Adrian Belew Powertrio na Carioca Club
 
 __30/04__ - National no Dissenso Lounge  
 __30/04__ - Labirinto [2x] no Dissenso Lounge  
+__06/05__ - Ruído/mm [2x] no CCSP  
 
 ### upcoming  
-__13/05__ - [Maximus Festival] Prophets of Rage a Autodromo Interlagos  
-__13/05__ - [Maximus Festival] Linkin Park na Autodromo Interlagos  
-__13/05__ - [Maximus Festival] Slayer na Autodromo Interlagos  
-__13/05__ - [Maximus Festival] Rob Zombie na Autodromo Interlagos  
-__13/05__ - [Maximus Festival] Ghost na Autodromo Interlagos  
-__14/06__ - Moonspell na Clash Club [comprar](http://www.clubedoingresso.com/moonspell-sp)  
 __12/08__ - Anathema na Carioca Club [comprar](http://www.clubedoingresso.com/anathema)  
 __12/09__ - Devendra Banhart no Tropical Butantã [comprar](http://www.ticketload.com/events/popload-gig-com-devendra-banhart-sao-paulo-583)
