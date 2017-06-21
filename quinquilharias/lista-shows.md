@@ -130,4 +130,5 @@ __06/05__ - Ruído/mm [2x] no CCSP
 
 ### upcoming  
 __12/08__ - Anathema na Carioca Club [comprar](http://www.clubedoingresso.com/anathema)  
-__12/09__ - Devendra Banhart no Tropical Butantã [comprar](http://www.ticketload.com/events/popload-gig-com-devendra-banhart-sao-paulo-583)
+__12/09__ - Devendra Banhart no Tropical Butantã [comprar](http://www.ticketload.com/events/popload-gig-com-devendra-banhart-sao-paulo-583)  
+__08/12__ - Neurosis na Clash Club
