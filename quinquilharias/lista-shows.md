@@ -104,7 +104,7 @@ __05/12__ - Mais Valia na Casa do Mancha
 
 ## 2016
 
-__26/03__ - Jupiterian no Estudio Som  
+__26/03__ - Jupiterian [2x] no Estudio Som  
 __26/03__ - Mythological Cold Towers no Estudio Som  
 __09/07__ - Magnetita no Centro Cultural Zapata   
 __09/07__ - Umbilichaos no Centro Cultural Zapata  
@@ -127,8 +127,12 @@ __27/11__ - Adrian Belew Powertrio na Carioca Club
 __30/04__ - National no Dissenso Lounge  
 __30/04__ - Labirinto [2x] no Dissenso Lounge  
 __06/05__ - Ruído/mm [2x] no CCSP  
+__27/06__ - [Dia da Música] Ralo no Largo da Batata  
+__27/06__ - [Dia da Música] Jupiterian [3x] no Largo da Batata  
+__16/07__ - Ventre no CCSP  
+__16/07__ - E A Terra Nunca Me Pareceu Tão Distante [4x] no CCSP  
 
 ### upcoming  
-__12/08__ - Anathema na Carioca Club [comprar](http://www.clubedoingresso.com/anathema)  
+__12/08__ - Anathema [2x] no Carioca Club [comprar](http://www.clubedoingresso.com/anathema)  
 __12/09__ - Devendra Banhart no Tropical Butantã [comprar](http://www.ticketload.com/events/popload-gig-com-devendra-banhart-sao-paulo-583)  
 __08/12__ - Neurosis na Clash Club
