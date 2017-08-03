@@ -133,6 +133,7 @@ __16/07__ - Ventre no CCSP
 __16/07__ - E A Terra Nunca Me Pareceu Tão Distante [4x] no CCSP  
 
 ### upcoming  
-__12/08__ - Anathema [2x] no Carioca Club [comprar](http://www.clubedoingresso.com/anathema)  
+__12/08__ - Anathema [2x] no Carioca Club  
 __12/09__ - Devendra Banhart no Tropical Butantã [comprar](http://www.ticketload.com/events/popload-gig-com-devendra-banhart-sao-paulo-583)  
-__08/12__ - Neurosis na Clash Club
+__08/12__ - Neurosis na Clash Club  
+__09/12__ - Arcade Fire na Arena Anhembi [comprar]
