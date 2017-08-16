@@ -134,6 +134,8 @@ __16/07__ - E A Terra Nunca Me Pareceu Tão Distante [4x] no CCSP
 __12/08__ - Anathema [2x] no Carioca Club  
 
 ### upcoming  
+__19/08__ - Red Mess na Clash Club  
+__19/08__ - Cobalt Blue na Clash Club  
 __19/08__ - Stoned Jesus na Clash Club  
 __12/09__ - Devendra Banhart no Tropical Butantã [comprar](http://www.ticketload.com/events/popload-gig-com-devendra-banhart-sao-paulo-583)  
 __08/12__ - Neurosis na Clash Club  
