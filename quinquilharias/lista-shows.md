@@ -135,6 +135,6 @@ __12/08__ - Anathema [2x] no Carioca Club
 __12/09__ - Devendra Banhart no Tropical Butantã  
 
 ### upcoming  
-__20/09__ - Vapors Of Morphine no Cine Joia [comprar](http://www.livepass.com.br/event/vapors-of-morphine/)
+__20/09__ - Vapors Of Morphine no Cine Joia [comprar](http://www.livepass.com.br/event/vapors-of-morphine/)  
 __08/12__ - Neurosis na Clash Club  
 __09/12__ - Arcade Fire na Arena Anhembi [comprar]
