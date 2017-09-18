@@ -136,5 +136,10 @@ __12/09__ - Devendra Banhart no Tropical Butantã
 
 ### upcoming  
 __20/09__ - Vapors Of Morphine no Cine Joia [comprar](http://www.livepass.com.br/event/vapors-of-morphine/)  
+__05/11__ - [Rock Station] Bad Religion no Espaço das Américas [comprar](https://www.ticket360.com.br/evento/7519/rock-station-com-bad-religion-pegboy-samiam-teenage-bottlerocket-e-dead-fish)  
+__05/11__ - [Rock Station] Pegboy no Espaço das Américas  
+__05/11__ - [Rock Station] Samian no Espaço das Américas  
+__05/11__ - [Rock Station] Teenage Bottlerocket no Espaço das Américas  
+__05/11__ - [Rock Station] Dead Fish no Espaço das Américas  
 __08/12__ - Neurosis na Clash Club  
 __09/12__ - Arcade Fire na Arena Anhembi [comprar]
