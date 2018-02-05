@@ -133,12 +133,16 @@ __16/07__ - Ventre no CCSP
 __16/07__ - E A Terra Nunca Me Pareceu Tão Distante [4x] no CCSP  
 __12/08__ - Anathema [2x] no Carioca Club  
 __12/09__ - Devendra Banhart no Tropical Butantã  
+__08/10__ - E A Terra Nunca Me Pareceu Tão Distante [5x] no Casa das Caldeiras  
+__08/10__ - Mais Valia no Casa das Caldeiras  
+__08/10__ - Ema Stoned no Casa das Caldeiras  
 __14/12__ - Satanique Samba Trio no CCSP 
 
 ## 2018
 
 __04/02__ - Jupiterian [4x] no CCSP  
 __04/02__ - Herod [3x] no CCSP  
+__04/02__ - Yantra no Hotel Bar  
 
 
 ### upcoming  
