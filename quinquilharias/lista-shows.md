@@ -96,7 +96,7 @@ __31/10__ - Noala no Dissenso Studio
 __31/10__ - Saturndust no Dissenso Studio  
 __31/10__ - Crushing Darkness no Dissenso Studio  
 __31/10__ - Hierofante no Dissenso Studio  
-__26/11__ - Herod na Casa do Mancha  
+__26/11__ - Herod [2x] na Casa do Mancha  
 __26/11__ - Loomer na Casa do Mancha  
 __04/12__ - Elza Soares no SESC Pompéia  
 __05/12__ - Ruido/mm na Casa do Mancha  
@@ -135,4 +135,12 @@ __12/08__ - Anathema [2x] no Carioca Club
 __12/09__ - Devendra Banhart no Tropical Butantã  
 __14/12__ - Satanique Samba Trio no CCSP 
 
+## 2018
+
+__04/02__ - Jupiterian [4x] no CCSP  
+__04/02__ - Herod [3x] no CCSP  
+
+
 ### upcoming  
+
+__08/05__ - Mogwai no Tropical Butantã (comprar)[http://www.ticketload.com/events/popload-gig-com-mogwai-sao-paulo-269]  
