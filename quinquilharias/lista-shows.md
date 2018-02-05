@@ -143,4 +143,4 @@ __04/02__ - Herod [3x] no CCSP
 
 ### upcoming  
 
-__08/05__ - Mogwai no Tropical Butantã (comprar)[http://www.ticketload.com/events/popload-gig-com-mogwai-sao-paulo-269]  
+__08/05__ - Mogwai no Tropical Butantã [comprar] (http://www.ticketload.com/events/popload-gig-com-mogwai-sao-paulo-269)  
