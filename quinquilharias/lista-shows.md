@@ -143,8 +143,11 @@ __14/12__ - Satanique Samba Trio no CCSP
 __04/02__ - Jupiterian [4x] no CCSP  
 __04/02__ - Herod [3x] no CCSP  
 __04/02__ - Yantra no Hotel Bar  
+__08/02__ - Rakta no CCSP  
 
 
 ### upcoming  
 
+__13/02__ - Desalmado no Dissenso Lounge  
+__13/02__ - Besta no Dissenso Lounge  
 __08/05__ - Mogwai no Tropical Butantã [comprar](http://www.ticketload.com/events/popload-gig-com-mogwai-sao-paulo-269)  
