@@ -88,9 +88,9 @@ __31/05__ - Hierofante no Inferno Club
 __24/09__ - Faith no More [2x] no Espaço das Americas  
 __26/09__ - Lee Ranaldo no Largo da Batata  
 __26/09__ - Cidadão Instigado no Largo da Batata  
-__27/09__ - Huey no Centro Cultural São Paulo  
+__27/09__ - Huey [2x] no Centro Cultural São Paulo  
 __30/09__ - Steve Shelley no Associação Cultural Santa Cecilia  
-__13/10__ - Huey na Alameda Rio Claro  
+__13/10__ - Huey [3x] na Alameda Rio Claro  
 __25/10__ - Boogarins no Mirante 9 de Julho  
 __31/10__ - Noala no Dissenso Studio  
 __31/10__ - Saturndust no Dissenso Studio  
@@ -146,8 +146,15 @@ __04/02__ - Yantra no Hotel Bar
 __08/02__ - Rakta no CCSP  
 __13/02__ - Desalmado no Dissenso Lounge  
 __13/02__ - Besta no Dissenso Lounge  
+__22/04__ - Flying Lotus no Allianz Park  
 __22/04__ - Radiohead no Allianz Park  
+__06/05__ - Cosmo Grão no CCSP  
+__06/05__ - Huey [4x] no CCSP
 
 
 ### upcoming  
 __08/05__ - Mogwai no Tropical Butantã [comprar](http://www.ticketload.com/events/popload-gig-com-mogwai-sao-paulo-269)  
+__10/05__ - Deaf Kids no SESC Paulista  
+__10/05__ - TEST no SESC Paulista  
+__18/05__ - Batushka na Fabrique  
+
