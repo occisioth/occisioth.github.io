@@ -157,4 +157,5 @@ __08/05__ - Mogwai no Tropical Butantã [comprar](http://www.ticketload.com/even
 __10/05__ - Deaf Kids no SESC Paulista  
 __10/05__ - TEST no SESC Paulista  
 __18/05__ - Batushka na Fabrique  
+__27/05__ - Steve Wilson no Carioca Clube  
 
