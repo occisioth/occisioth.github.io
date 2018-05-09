@@ -158,4 +158,9 @@ __10/05__ - Deaf Kids no SESC Paulista
 __10/05__ - TEST no SESC Paulista  
 __18/05__ - Batushka na Fabrique  
 __27/05__ - Steve Wilson no Carioca Clube  
-
+__14/10__ - Nick Cave & Bad Seeds no Espaço das Americas [comprar](https://ticketload.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PerformanceId=229)  
+__15/11__ - [Popload Festival] Lorde no Memorial da América Latina [comprar](https://ticketload.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PerformanceId=227)  
+__15/11__ - [Popload Festival] MGMT no Memorial da América Latina  
+__15/11__ - [Popload Festival] Blondie no Memorial da América Latina  
+__15/11__ - [Popload Festival] Death Cab for Cutie no Memorial da América Latina  
+__15/11__ - [Popload Festival] At the Drive In no Memorial da América Latina  
