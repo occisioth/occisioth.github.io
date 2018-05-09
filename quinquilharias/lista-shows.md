@@ -153,7 +153,6 @@ __06/05__ - Huey [4x] no CCSP
 
 
 ### upcoming  
-__08/05__ - Mogwai no Tropical Butantã [comprar](http://www.ticketload.com/events/popload-gig-com-mogwai-sao-paulo-269)  
 __10/05__ - Deaf Kids no SESC Paulista  
 __10/05__ - TEST no SESC Paulista  
 __18/05__ - Batushka na Fabrique  
