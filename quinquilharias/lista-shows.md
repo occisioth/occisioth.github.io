@@ -149,14 +149,11 @@ __13/02__ - Besta no Dissenso Lounge
 __22/04__ - Flying Lotus no Allianz Park  
 __22/04__ - Radiohead no Allianz Park  
 __06/05__ - Cosmo Grão no CCSP  
-__06/05__ - Huey [4x] no CCSP
+__06/05__ - Huey [4x] no CCSP  
+__27/05__ - Steve Wilson no Carioca Clube  
 
 
 ### upcoming  
-__10/05__ - Deaf Kids no SESC Paulista  
-__10/05__ - TEST no SESC Paulista  
-__18/05__ - Batushka na Fabrique  
-__27/05__ - Steve Wilson no Carioca Clube  
 __14/10__ - Nick Cave & Bad Seeds no Espaço das Americas [comprar](https://ticketload.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PerformanceId=229)  
 __15/11__ - [Popload Festival] Lorde no Memorial da América Latina [comprar](https://ticketload.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PerformanceId=227)  
 __15/11__ - [Popload Festival] MGMT no Memorial da América Latina  
