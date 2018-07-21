@@ -158,7 +158,7 @@ __20/07__ - Astronauta Marinho no CCSP
 
 
 ### upcoming  
-__28/07__ - Basalt no CCSP
+__28/07__ - Basalt no CCSP  
 __28/07__ - Frieza no CCSP  
 __14/10__ - Nick Cave & Bad Seeds no Espaço das Americas [comprar](https://ticketload.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PerformanceId=229)  
 __15/11__ - [Popload Festival] Lorde no Memorial da América Latina [comprar](https://ticketload.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PerformanceId=227)  
