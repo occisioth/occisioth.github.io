@@ -151,9 +151,15 @@ __22/04__ - Radiohead no Allianz Park
 __06/05__ - Cosmo Grão no CCSP  
 __06/05__ - Huey [4x] no CCSP  
 __27/05__ - Steve Wilson no Carioca Clube  
+__30/06__ - [Dia da Música] E A Terra Nunca Me Pareceu Tão Distante [6x] no Breve
+__30/06__ - [Dia da Música] Kalouv no Z Carniceria
+__20/07__ - Maquinas no CCSP  
+__20/07__ - Astronauta Marinho no CCSP  
 
 
 ### upcoming  
+__28/07__ - Basalt no CCSP
+__28/07__ - Frieza no CCSP  
 __14/10__ - Nick Cave & Bad Seeds no Espaço das Americas [comprar](https://ticketload.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PerformanceId=229)  
 __15/11__ - [Popload Festival] Lorde no Memorial da América Latina [comprar](https://ticketload.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PerformanceId=227)  
 __15/11__ - [Popload Festival] MGMT no Memorial da América Latina  
