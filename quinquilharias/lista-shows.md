@@ -164,9 +164,9 @@ __25/08__ - Infamous Glory no Centro Cultural Zapata
 __25/08__ - Aphorism no Centro Cultural Zapata  
 __25/08__ - D.E.R [2x] no Centro Cultural Zapata  
 __26/08__ - Father John Misty no Auditório Simon Bolívar [comprar](https://ticketload.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PerformanceId=237)  
-__01/09__ - Paradise Lost no Carioca Clube [commprar](http://www.clubedoingresso.com/paradiselost-sp)  
+__01/09__ - Paradise Lost no Carioca Clube [comprar](http://www.clubedoingresso.com/paradiselost-sp)  
 __15/09__ - Cannibal Corpse no Carioca Clube [comprar](http://www.clubedoingresso.com/cannibalcorpse-napalmdeath-sp)  
-__15/09__ - Cannibal Corpse no Carioca Clube  
+__15/09__ - Napalm Death [2x] no Carioca Clube  
 __13/10__ - [Abraxas Fest] Eyehategod no Fabrique [comprar](https://www.sympla.com.br/abraxas-fest-2018---5-anos---sao-paulo__279933)  
 __14/10__ - Nick Cave & Bad Seeds no Espaço das Americas [comprar](https://ticketload.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PerformanceId=229)  
 __15/11__ - [Popload Festival] Lorde no Memorial da América Latina [comprar](https://ticketload.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PerformanceId=227)  
