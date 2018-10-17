@@ -157,14 +157,9 @@ __20/07__ - Maquinas no CCSP
 __20/07__ - Astronauta Marinho no CCSP  
 __28/07__ - Basalt no CCSP  
 __28/07__ - Frieza no CCSP  
+__14/10__ - Nick Cave & Bad Seeds no Espaço das Americas  
 
-
-### upcoming  
-__08/09__ - Mark Lanegan [2x] no Cine Joia  
-__15/09__ - Cannibal Corpse no Carioca Clube [comprar](http://www.clubedoingresso.com/cannibalcorpse-napalmdeath-sp)  
-__15/09__ - Napalm Death [2x] no Carioca Clube  
-__13/10__ - [Abraxas Fest] Eyehategod no Fabrique [comprar](https://www.sympla.com.br/abraxas-fest-2018---5-anos---sao-paulo__279933)  
-__14/10__ - Nick Cave & Bad Seeds no Espaço das Americas [comprar](https://ticketload.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PerformanceId=229)  
+### upcoming    
 __15/11__ - [Popload Festival] Lorde no Memorial da América Latina [comprar](https://ticketload.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PerformanceId=227)  
 __15/11__ - [Popload Festival] MGMT no Memorial da América Latina  
 __15/11__ - [Popload Festival] Blondie no Memorial da América Latina  
