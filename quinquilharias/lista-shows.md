@@ -159,9 +159,13 @@ __28/07__ - Basalt no CCSP
 __28/07__ - Frieza no CCSP  
 __14/10__ - Nick Cave & Bad Seeds no Espaço das Americas  
 
+## 2019
+
 ### upcoming    
-__15/11__ - [Popload Festival] Lorde no Memorial da América Latina [comprar](https://ticketload.showare.com.br/Performance/ShoWareFrontEndPerSectionReservation.aspx?PerformanceId=227)  
-__15/11__ - [Popload Festival] MGMT no Memorial da América Latina  
-__15/11__ - [Popload Festival] Blondie no Memorial da América Latina  
-__15/11__ - [Popload Festival] Death Cab for Cutie no Memorial da América Latina  
-__15/11__ - [Popload Festival] At the Drive In no Memorial da América Latina  
+__18/01__ - Watain no Carioca Club [comprar](http://www.clubedoingresso.com/watain-sp?fbclid=IwAR25sCY77tq0MrvyH_FGanhzTy209elHuDcdFCGKZZDJ7JbJJqj7-eA4PeI)  
+__02/02__ - Anathema [3x] no Carioca Club [comprar](https://www2.clubedoingresso.com/evento/anathema-sp?fbclid=IwAR05DjihoxHJY21j8FbRE6OY0UiAzp18vHEku5NHVahWaEfoVRnd9N5SO6c)  
+__14/02__ - Bush no Credicard Hall [comprar](http://premier.ticketsforfun.com.br/shows/show.aspx?sh=BUSHSTUB19&fbclid=IwAR2Oc1Wfi2fUM65Vn5GIZvDim6bXKiVjMQyQkuLfb6MZUdsLgy3p3IAwWUs)  
+__14/02__ - Stone Temple Pilots no Credicard Hall  
+__14/04__ - Sleep no Roadburn Festival [comprar](https://roadburn.com/tickets/?fbclid=IwAR1tPPqetYPI68Ac-lryqH4pOb61BJ6gW0haG9NQmNfcZd8WXvyzXrZNteU)  
+__14/04__ - THOU no Roadburn Festival  
+__14/04__ - Daughters no Roadburn Festival  
