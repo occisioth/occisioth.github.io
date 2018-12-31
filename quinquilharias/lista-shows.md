@@ -158,6 +158,8 @@ __20/07__ - Astronauta Marinho no CCSP
 __28/07__ - Basalt no CCSP  
 __28/07__ - Frieza no CCSP  
 __14/10__ - Nick Cave & Bad Seeds no Espaço das Americas  
+__28/12__ - Acavernus no CCSC  
+__28/12__ - Deaf Kids no CCSC  
 
 ## 2019
 
