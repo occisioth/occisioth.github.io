@@ -164,10 +164,18 @@ __28/12__ - Deaf Kids no CCSC
 ## 2019
 
 ### upcoming    
+__13/01__ - Violetas de Outono no CCSP 
 __18/01__ - Watain no Carioca Club [comprar](http://www.clubedoingresso.com/watain-sp?fbclid=IwAR25sCY77tq0MrvyH_FGanhzTy209elHuDcdFCGKZZDJ7JbJJqj7-eA4PeI)  
+__20/01__ - RAKTA no CCSP  
+__20/01__ - Mueran Humanos no CCSP  
+__26/01__ - Philip H. Anselmo and The Illegals no Tropical Butantã [comprar](https://ticketbrasil.com.br/show/6213-philanselmo-saopaulo-sp/?fbclid=IwAR2BpbUBRTV-xFk9YuzCOF0lvwwQ0ILI-ao_ueS6JN2bnqHog2LVhUsEsas)  
 __02/02__ - Anathema [3x] no Carioca Club [comprar](https://www2.clubedoingresso.com/evento/anathema-sp?fbclid=IwAR05DjihoxHJY21j8FbRE6OY0UiAzp18vHEku5NHVahWaEfoVRnd9N5SO6c)  
 __14/02__ - Bush no Credicard Hall [comprar](http://premier.ticketsforfun.com.br/shows/show.aspx?sh=BUSHSTUB19&fbclid=IwAR2Oc1Wfi2fUM65Vn5GIZvDim6bXKiVjMQyQkuLfb6MZUdsLgy3p3IAwWUs)  
 __14/02__ - Stone Temple Pilots no Credicard Hall  
-__14/04__ - Sleep no Roadburn Festival [comprar](https://roadburn.com/tickets/?fbclid=IwAR1tPPqetYPI68Ac-lryqH4pOb61BJ6gW0haG9NQmNfcZd8WXvyzXrZNteU)  
+__10/03__ - Leprous no Carioca Club [comprar](http://www.clubedoingresso.com/leprous-sp?keyword=leprous)  
+__31/03__ - Ensalved no Carioca Club [comprar](https://www2.clubedoingresso.com/evento/enslaved-sp)  
+__14/04__ - Sleep no Roadburn Festival  
 __14/04__ - THOU no Roadburn Festival  
 __14/04__ - Daughters no Roadburn Festival  
+__21/04__ - [Extreme Metal Fest]  
+__18/05__ - Graveyard no Fabrique Club [comprar](https://ticketbrasil.com.br/show/6690-graveyard-saopaulo-sp/?fbclid=IwAR2IWano0dpdsDCZHUwwZf1jxV7UiwJmdH6CSbueUufu6ce7yY9fADyjW8o)  
