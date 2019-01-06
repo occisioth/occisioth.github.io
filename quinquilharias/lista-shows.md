@@ -164,7 +164,7 @@ __28/12__ - Deaf Kids no CCSC
 ## 2019
 
 ### upcoming    
-__13/01__ - Violetas de Outono no CCSP 
+__13/01__ - Violetas de Outono no CCSP  
 __18/01__ - Watain no Carioca Club [comprar](http://www.clubedoingresso.com/watain-sp?fbclid=IwAR25sCY77tq0MrvyH_FGanhzTy209elHuDcdFCGKZZDJ7JbJJqj7-eA4PeI)  
 __20/01__ - RAKTA no CCSP  
 __20/01__ - Mueran Humanos no CCSP  
