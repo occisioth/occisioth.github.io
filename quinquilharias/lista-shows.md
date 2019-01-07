@@ -168,7 +168,7 @@ __13/01__ - Violetas de Outono no CCSP
 __18/01__ - Watain no Carioca Club [comprar](http://www.clubedoingresso.com/watain-sp?fbclid=IwAR25sCY77tq0MrvyH_FGanhzTy209elHuDcdFCGKZZDJ7JbJJqj7-eA4PeI)  
 __20/01__ - RAKTA no CCSP  
 __20/01__ - Mueran Humanos no CCSP  
-__26/01__ - Philip H. Anselmo and The Illegals no Tropical Butantã [comprar](https://ticketbrasil.com.br/show/6213-philanselmo-saopaulo-sp/?fbclid=IwAR2BpbUBRTV-xFk9YuzCOF0lvwwQ0ILI-ao_ueS6JN2bnqHog2LVhUsEsas)  
+__26/01__ - Philip H. Anselmo and The Illegals no Tropical Butantã  
 __02/02__ - Anathema [3x] no Carioca Club [comprar](https://www2.clubedoingresso.com/evento/anathema-sp?fbclid=IwAR05DjihoxHJY21j8FbRE6OY0UiAzp18vHEku5NHVahWaEfoVRnd9N5SO6c)  
 __14/02__ - Bush no Credicard Hall [comprar](http://premier.ticketsforfun.com.br/shows/show.aspx?sh=BUSHSTUB19&fbclid=IwAR2Oc1Wfi2fUM65Vn5GIZvDim6bXKiVjMQyQkuLfb6MZUdsLgy3p3IAwWUs)  
 __14/02__ - Stone Temple Pilots no Credicard Hall  
