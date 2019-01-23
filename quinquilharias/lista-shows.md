@@ -161,13 +161,11 @@ __14/10__ - Nick Cave & Bad Seeds no Espaço das Americas
 __28/12__ - Acavernus no CCSC  
 __28/12__ - Deaf Kids no CCSC  
 
-## 2019
-
-### upcoming    
-__13/01__ - Violetas de Outono no CCSP  
-__18/01__ - Watain no Carioca Club [comprar](http://www.clubedoingresso.com/watain-sp?fbclid=IwAR25sCY77tq0MrvyH_FGanhzTy209elHuDcdFCGKZZDJ7JbJJqj7-eA4PeI)  
+## 2019  
 __20/01__ - RAKTA no CCSP  
 __20/01__ - Mueran Humanos no CCSP  
+
+### upcoming    
 __26/01__ - Philip H. Anselmo and The Illegals no Tropical Butantã  
 __02/02__ - Anathema [3x] no Carioca Club [comprar](https://www2.clubedoingresso.com/evento/anathema-sp?fbclid=IwAR05DjihoxHJY21j8FbRE6OY0UiAzp18vHEku5NHVahWaEfoVRnd9N5SO6c)  
 __14/02__ - Bush no Credicard Hall [comprar](http://premier.ticketsforfun.com.br/shows/show.aspx?sh=BUSHSTUB19&fbclid=IwAR2Oc1Wfi2fUM65Vn5GIZvDim6bXKiVjMQyQkuLfb6MZUdsLgy3p3IAwWUs)  
