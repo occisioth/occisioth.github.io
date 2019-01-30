@@ -175,5 +175,11 @@ __31/03__ - Ensalved no Carioca Club [comprar](https://www2.clubedoingresso.com/
 __14/04__ - Sleep no Roadburn Festival  
 __14/04__ - THOU no Roadburn Festival  
 __14/04__ - Daughters no Roadburn Festival  
+__14/04__ - Ulcerate no Roadburn Festival  
+__14/04__ - Have a Nice Life no Roadburn Festival  
+__14/04__ - Old Man Gloom no Roadburn Festival  
+__14/04__ - The End no Roadburn Festival  
+__14/04__ - Wrong no Roadburn Festival  
+__14/04__ - Crowhurst x Gnaw Their Tongues no Roadburn Festival  
 __21/04__ - [Extreme Metal Fest]  
 __18/05__ - Graveyard no Fabrique Club [comprar](https://ticketbrasil.com.br/show/6690-graveyard-saopaulo-sp/?fbclid=IwAR2IWano0dpdsDCZHUwwZf1jxV7UiwJmdH6CSbueUufu6ce7yY9fADyjW8o)  
