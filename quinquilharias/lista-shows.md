@@ -168,9 +168,6 @@ __26/01__ - Philip H. Anselmo and The Illegals no Tropical Butantã
 __02/02__ - Anathema [3x] no Carioca Club  
 
 ### upcoming    
-__08/02__ - Labirinto no SESC Belenzinho  
-__14/02__ - Bush no Credicard Hall [comprar](http://premier.ticketsforfun.com.br/shows/show.aspx?sh=BUSHSTUB19&fbclid=IwAR2Oc1Wfi2fUM65Vn5GIZvDim6bXKiVjMQyQkuLfb6MZUdsLgy3p3IAwWUs)  
-__14/02__ - Stone Temple Pilots no Credicard Hall  
 __10/03__ - Leprous no Carioca Club [comprar](http://www.clubedoingresso.com/leprous-sp?keyword=leprous)  
 __14/03__ - Goath no CCSC  
 __14/03__ - Vazio no CCSC  
