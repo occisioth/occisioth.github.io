@@ -172,14 +172,23 @@ __10/03__ - Leprous no Carioca Club [comprar](http://www.clubedoingresso.com/lep
 __14/03__ - Goath no CCSC  
 __14/03__ - Vazio no CCSC  
 __31/03__ - Ensalved no Carioca Club [comprar](https://www2.clubedoingresso.com/evento/enslaved-sp)  
-__14/04__ - Sleep no Roadburn Festival  
-__14/04__ - THOU no Roadburn Festival  
-__14/04__ - Daughters no Roadburn Festival  
-__14/04__ - Ulcerate no Roadburn Festival  
-__14/04__ - Have a Nice Life no Roadburn Festival  
-__14/04__ - Old Man Gloom no Roadburn Festival  
-__14/04__ - The End no Roadburn Festival  
-__14/04__ - Wrong no Roadburn Festival  
-__14/04__ - Crowhurst x Gnaw Their Tongues no Roadburn Festival  
+__14/04__ - [Roadburn Festival] Sleep no Roadburn Festival  
+__14/04__ - [Roadburn Festival] THOU no Roadburn Festival  
+__14/04__ - [Roadburn Festival] Daughters no Roadburn Festival  
+__14/04__ - [Roadburn Festival] Ulcerate no Roadburn Festival  
+__14/04__ - [Roadburn Festival] Have a Nice Life no Roadburn Festival  
+__14/04__ - [Roadburn Festival] Old Man Gloom no Roadburn Festival  
+__14/04__ - [Roadburn Festival] The End no Roadburn Festival  
+__14/04__ - [Roadburn Festival] Wrong no Roadburn Festival  
+__14/04__ - [Roadburn Festival] Crowhurst x Gnaw Their Tongues no Roadburn Festival  
 __21/04__ - [Extreme Metal Fest]  
 __18/05__ - Graveyard no Fabrique Club [comprar](https://ticketbrasil.com.br/show/6690-graveyard-saopaulo-sp/?fbclid=IwAR2IWano0dpdsDCZHUwwZf1jxV7UiwJmdH6CSbueUufu6ce7yY9fADyjW8o)  
+__07/09__ - [Setembro Negro] Baixo Calão no Carioca Club  
+__07/09__ - [Setembro Negro] Expose your Hate no Carioca Club  
+__07/09__ - [Setembro Negro] Full of Hell no Carioca Club  
+__07/09__ - [Setembro Negro] UADA no Carioca Club  
+__07/09__ - [Setembro Negro] Rotten Sound no Carioca Club  
+__07/09__ - [Setembro Negro] Monolord no Carioca Club  
+__07/09__ - [Setembro Negro] Necrophobic no Carioca Club  
+__07/09__ - [Setembro Negro] Vomitory no Carioca Club  
+__07/09__ - [Setembro Negro] Demolition Hammer no Carioca Club  
