@@ -181,7 +181,6 @@ __14/04__ - [Roadburn Festival] Old Man Gloom no Roadburn Festival
 __14/04__ - [Roadburn Festival] The End no Roadburn Festival  
 __14/04__ - [Roadburn Festival] Wrong no Roadburn Festival  
 __14/04__ - [Roadburn Festival] Crowhurst x Gnaw Their Tongues no Roadburn Festival  
-__21/04__ - [Extreme Metal Fest]  
 __18/05__ - Graveyard no Fabrique Club [comprar](https://ticketbrasil.com.br/show/6690-graveyard-saopaulo-sp/?fbclid=IwAR2IWano0dpdsDCZHUwwZf1jxV7UiwJmdH6CSbueUufu6ce7yY9fADyjW8o)  
 __07/09__ - [Setembro Negro] Baixo Calão no Carioca Club  
 __07/09__ - [Setembro Negro] Expose your Hate no Carioca Club  
