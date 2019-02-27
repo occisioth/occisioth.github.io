@@ -172,6 +172,7 @@ __10/03__ - Leprous no Carioca Club [comprar](http://www.clubedoingresso.com/lep
 __14/03__ - Goath no CCSC  
 __14/03__ - Vazio no CCSC  
 __31/03__ - Ensalved no Carioca Club [comprar](https://www2.clubedoingresso.com/evento/enslaved-sp)  
+__11/04__ - Saint Vitus no SO36
 __14/04__ - [Roadburn Festival] Sleep no Roadburn Festival  
 __14/04__ - [Roadburn Festival] THOU no Roadburn Festival  
 __14/04__ - [Roadburn Festival] Daughters no Roadburn Festival  
