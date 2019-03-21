@@ -168,12 +168,8 @@ __26/01__ - Philip H. Anselmo and The Illegals no Tropical Butantã
 __02/02__ - Anathema [3x] no Carioca Club  
 
 ### upcoming    
-__10/03__ - Leprous no Carioca Club [comprar](http://www.clubedoingresso.com/leprous-sp?keyword=leprous)  
-__14/03__ - Goath no Zapata  
-__14/03__ - Vazio no Zapata  
-__16/03__ - Rosetta no Dissenso  
-__16/03__ - Labirinto no Dissenso  
 __31/03__ - Ensalved no Carioca Club [comprar](https://www2.clubedoingresso.com/evento/enslaved-sp)  
+__03/04__ - SUNN O))) at Säule  
 __11/04__ - Saint Vitus no SO36  
 __14/04__ - [Roadburn Festival] Sleep no Roadburn Festival  
 __14/04__ - [Roadburn Festival] THOU no Roadburn Festival  
