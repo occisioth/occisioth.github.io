@@ -166,11 +166,9 @@ __20/01__ - RAKTA no CCSP
 __20/01__ - Mueran Humanos no CCSP  
 __26/01__ - Philip H. Anselmo and The Illegals no Tropical Butantã  
 __02/02__ - Anathema [3x] no Carioca Club  
+__03/04__ - SUNN O))) (audition) at Säule  
 
 ### upcoming    
-__31/03__ - Ensalved no Carioca Club [comprar](https://www2.clubedoingresso.com/evento/enslaved-sp)  
-__03/04__ - SUNN O))) at Säule  
-__11/04__ - Saint Vitus no SO36  
 __14/04__ - [Roadburn Festival] Sleep no Roadburn Festival  
 __14/04__ - [Roadburn Festival] THOU no Roadburn Festival  
 __14/04__ - [Roadburn Festival] Daughters no Roadburn Festival  
@@ -182,6 +180,7 @@ __14/04__ - [Roadburn Festival] Wrong no Roadburn Festival
 __14/04__ - [Roadburn Festival] Crowhurst x Gnaw Their Tongues no Roadburn Festival  
 __12/05__ - Daughters no Fabrique Club  
 __18/05__ - Graveyard no Fabrique Club [comprar](https://ticketbrasil.com.br/show/6690-graveyard-saopaulo-sp/?fbclid=IwAR2IWano0dpdsDCZHUwwZf1jxV7UiwJmdH6CSbueUufu6ce7yY9fADyjW8o)  
+__23/06__ - Baroness no Fabrique  
 __07/09__ - [Setembro Negro] Baixo Calão no Carioca Club  
 __07/09__ - [Setembro Negro] Expose your Hate no Carioca Club  
 __07/09__ - [Setembro Negro] Full of Hell no Carioca Club  
