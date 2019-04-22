@@ -167,17 +167,14 @@ __20/01__ - Mueran Humanos no CCSP
 __26/01__ - Philip H. Anselmo and The Illegals no Tropical Butantã  
 __02/02__ - Anathema [3x] no Carioca Club  
 __03/04__ - SUNN O))) (audition) at Säule  
-
-### upcoming    
 __14/04__ - [Roadburn Festival] Sleep no Roadburn Festival  
 __14/04__ - [Roadburn Festival] THOU no Roadburn Festival  
 __14/04__ - [Roadburn Festival] Daughters no Roadburn Festival  
-__14/04__ - [Roadburn Festival] Ulcerate no Roadburn Festival  
 __14/04__ - [Roadburn Festival] Have a Nice Life no Roadburn Festival  
 __14/04__ - [Roadburn Festival] Old Man Gloom no Roadburn Festival  
-__14/04__ - [Roadburn Festival] The End no Roadburn Festival  
-__14/04__ - [Roadburn Festival] Wrong no Roadburn Festival  
-__14/04__ - [Roadburn Festival] Crowhurst x Gnaw Their Tongues no Roadburn Festival  
+
+### upcoming    
+__09/05__ - A Place to Bury Strangers no CCSP  
 __12/05__ - Daughters no Fabrique Club  
 __18/05__ - Graveyard no Fabrique Club [comprar](https://ticketbrasil.com.br/show/6690-graveyard-saopaulo-sp/?fbclid=IwAR2IWano0dpdsDCZHUwwZf1jxV7UiwJmdH6CSbueUufu6ce7yY9fADyjW8o)  
 __23/06__ - Baroness no Fabrique  
