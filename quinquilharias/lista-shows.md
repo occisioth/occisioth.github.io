@@ -64,7 +64,7 @@ __21/04__ - Torture Squad no Carioca Club
 __21/04__ - Hypocrisy no Carioca Club  
 __18/05__ - Rotting Christ no Hangar 110  
 __24/05__ - Andy McKee no Bourbon Street  
-__03/08__ - The Swords no Cine Jóia  
+__03/08__ - The Sword no Cine Jóia  
 __03/08__ - Clutch no Cine Jóia  
 
 ## 2015
