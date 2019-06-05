@@ -172,11 +172,11 @@ __14/04__ - [Roadburn Festival] THOU no Roadburn Festival
 __14/04__ - [Roadburn Festival] Daughters no Roadburn Festival  
 __14/04__ - [Roadburn Festival] Have a Nice Life no Roadburn Festival  
 __14/04__ - [Roadburn Festival] Old Man Gloom no Roadburn Festival  
-
-### upcoming    
 __09/05__ - A Place to Bury Strangers no CCSP  
 __12/05__ - Daughters no Fabrique Club  
-__18/05__ - Graveyard no Fabrique Club [comprar](https://ticketbrasil.com.br/show/6690-graveyard-saopaulo-sp/?fbclid=IwAR2IWano0dpdsDCZHUwwZf1jxV7UiwJmdH6CSbueUufu6ce7yY9fADyjW8o)  
+__15/05__ - Stephen O'Malley no Sesc Paulista  
+
+### upcoming    
 __23/06__ - Baroness no Fabrique  
 __07/09__ - [Setembro Negro] Baixo Calão no Carioca Club  
 __07/09__ - [Setembro Negro] Expose your Hate no Carioca Club  
