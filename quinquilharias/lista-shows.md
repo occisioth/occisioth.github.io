@@ -175,15 +175,12 @@ __14/04__ - [Roadburn Festival] Old Man Gloom no Roadburn Festival
 __09/05__ - A Place to Bury Strangers no CCSP  
 __12/05__ - Daughters no Fabrique Club  
 __15/05__ - Stephen O'Malley no Sesc Paulista  
+__23/06__ - Baroness no Fabrique  
 
 ### upcoming    
-__23/06__ - Baroness no Fabrique  
-__07/09__ - [Setembro Negro] Baixo Calão no Carioca Club  
-__07/09__ - [Setembro Negro] Expose your Hate no Carioca Club  
 __07/09__ - [Setembro Negro] Full of Hell no Carioca Club  
 __07/09__ - [Setembro Negro] UADA no Carioca Club  
 __07/09__ - [Setembro Negro] Rotten Sound no Carioca Club  
 __07/09__ - [Setembro Negro] Monolord no Carioca Club  
 __07/09__ - [Setembro Negro] Necrophobic no Carioca Club  
 __07/09__ - [Setembro Negro] Vomitory no Carioca Club  
-__07/09__ - [Setembro Negro] Demolition Hammer no Carioca Club  
