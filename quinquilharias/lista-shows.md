@@ -176,11 +176,10 @@ __09/05__ - A Place to Bury Strangers no CCSP
 __12/05__ - Daughters no Fabrique Club  
 __15/05__ - Stephen O'Malley no Sesc Paulista  
 __23/06__ - Baroness no Fabrique  
-
-### upcoming    
 __07/09__ - [Setembro Negro] Full of Hell no Carioca Club  
 __07/09__ - [Setembro Negro] UADA no Carioca Club  
 __07/09__ - [Setembro Negro] Rotten Sound no Carioca Club  
 __07/09__ - [Setembro Negro] Monolord no Carioca Club  
-__07/09__ - [Setembro Negro] Necrophobic no Carioca Club  
-__07/09__ - [Setembro Negro] Vomitory no Carioca Club  
+
+### upcoming    
+
