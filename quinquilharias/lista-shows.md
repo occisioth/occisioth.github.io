@@ -187,3 +187,4 @@ __07/09__ - [Setembro Negro] Monolord no Carioca Club
 __21/03__ - Converge no Carioca Club  
 __20/04__ - Einstürzende Neubauten no Konzerthaus  
 __28/04__ - SWANS no Festsaal Kreuzberg  
+__30/04__ - ULVER no Doornroosje  
