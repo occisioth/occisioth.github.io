@@ -184,6 +184,7 @@ __07/09__ - [Setembro Negro] Monolord no Carioca Club
 ### upcoming    
 
 ## 2020  
+__01/03__ - Amenra na Fabrique Club
 __21/03__ - Converge no Carioca Club  
 __20/04__ - Einstürzende Neubauten no Konzerthaus  
 __28/04__ - SWANS no Festsaal Kreuzberg  
