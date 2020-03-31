@@ -186,9 +186,3 @@ __01/03__ - Amenra na Fabrique Club
 
 ### upcoming    
 
-__21/03__ - Converge no Carioca Club  
-__20/04__ - Einstürzende Neubauten no Konzerthaus  
-__28/04__ - SWANS no Festsaal Kreuzberg  
-__30/04__ - ULVER no Doornroosje  
-__09/05__ - Kero Kero Bonito na Fabrique Club [comprar](
-https://www.ingresse.com/balaclava-apresenta-kero-kero-bonito-em-sao-paulo#comprar)  
