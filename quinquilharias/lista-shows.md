@@ -27,6 +27,7 @@ __02/07__ - UDR no Inferno Club
 __11/03__ - Morrissey no Espaço das Américas  
 __11/03__ - Kristeen Young no Espaço das Américas  
 __07/04__ - [Lollapalooza] Foo Fighters no Jockey Clube  
+__14/04__ - Gui Boratto no Fabrique  
 
 ## 2013
 
