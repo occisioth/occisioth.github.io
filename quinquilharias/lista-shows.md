@@ -193,7 +193,7 @@ __12/03__ - Fossilization no Fabrique Club
 
 __25/03__ - The Ruins of Beverast no ORWO Haus [Ingressos](https://folter666shop.de/de/Tickets/Hardticket/the-ruins-of-beverast-grave-miasma-fuoco-fatuo-hardticket.html)  
 __25/03__ - Fuoco Fatuo no ORWO Haus  
-__25/03__ - Grave Miasma no ORWO Haus
+__25/03__ - Grave Miasma no ORWO Haus  
 __26/03__ - Marduk no ORWO Haus [Ingressos](https://folter666shop.de/de/Tickets/Hardticket/united-titans-2022-marduk-vader-hardticket.html)  
 __26/03__ - Vader no ORWO Haus  
 __05/04__ - Eyehategod no Goldgrube [Ingressos](https://goldgrube.tickettoaster.de/produkte/41709-tickets-eyehategod-sventlanas-goldgrube-kassel-am-05-04-2022)  
