@@ -185,5 +185,9 @@ __07/09__ - [Setembro Negro] Monolord no Carioca Club
 ## 2020  
 __01/03__ - Amenra na Fabrique Club  
 
-### upcoming    
+## 2022
+
+### upcoming
+__12/03__ - SURRA no Fabrique Club  Ingressos[https://www.clubedoingresso.com/evento/surra-damnyouth-fossilization-sanguedebode-thedamnnation]
+__12/03__ - Fossilization no Fabrique Club  
 
