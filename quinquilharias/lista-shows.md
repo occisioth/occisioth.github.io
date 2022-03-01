@@ -188,6 +188,18 @@ __01/03__ - Amenra na Fabrique Club
 ## 2022
 
 ### upcoming
-__12/03__ - SURRA no Fabrique Club  [Ingressos](https://www.clubedoingresso.com/evento/surra-damnyouth-fossilization-sanguedebode-thedamnnation)
+__12/03__ - SURRA no Fabrique Club  [Ingressos](https://www.clubedoingresso.com/evento/surra-damnyouth-fossilization-sanguedebode-thedamnnation)  
 __12/03__ - Fossilization no Fabrique Club  
+__20/05__ - Emperor na Audio [Ingressos](https://www.ticket360.com.br/evento/12236/ingressos-para-emperor)  
+__02/09__ - [Setembro Negro] Facada no Carioca Club[Ingressos](https://www.clubedoingresso.com/evento/setembronegro)  
+__02/09__ - [Setembro Negro] Conan no Carioca Club  
+__02/09__ - [Setembro Negro] Harakiri from the Sky no Carioca Club  
+__02/09__ - [Setembro Negro] Angel Witch no Carioca Club  
+__03/09__ - [Setembro Negro] Gatecreeper no Carioca Club  
+__03/09__ - [Setembro Negro] Helheim no Carioca Club  
+__04/09__ - [Setembro Negro] ROT no Carioca Club  
+__04/09__ - [Setembro Negro] InterArma no Carioca Club  
+__04/09__ - [Setembro Negro] Tribulation no Carioca Club  
+__04/09__ - [Setembro Negro] Diamond Head no Carioca Club  
+
 
