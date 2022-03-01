@@ -189,7 +189,18 @@ __01/03__ - Amenra na Fabrique Club
 
 ### upcoming
 __12/03__ - SURRA no Fabrique Club  [Ingressos](https://www.clubedoingresso.com/evento/surra-damnyouth-fossilization-sanguedebode-thedamnnation)  
-__12/03__ - Fossilization no Fabrique Club  
+__12/03__ - Fossilization no Fabrique Club 
+
+__25/03__ - The Ruins of Beverast no ORWO Haus [Ingressos](https://folter666shop.de/de/Tickets/Hardticket/the-ruins-of-beverast-grave-miasma-fuoco-fatuo-hardticket.html)  
+__25/03__ - Fuoco Fatuo no ORWO Haus  
+__25/03__ - Grave Miasma no ORWO Haus
+__26/03__ - Marduk no ORWO Haus [Ingressos](https://folter666shop.de/de/Tickets/Hardticket/united-titans-2022-marduk-vader-hardticket.html)  
+__26/03__ - Vader no ORWO Haus  
+__05/04__ - Eyehategod no Goldgrube [Ingressos](https://goldgrube.tickettoaster.de/produkte/41709-tickets-eyehategod-sventlanas-goldgrube-kassel-am-05-04-2022)  
+__05/04__ - Svetlanas no Goldgrube  
+__08/04__ - God Is an Astronaut no Hole44 [Ingressos](https://www.dodotickets.de/8008/god-is-an-astronaut)  
+__12/04__ - Amenra no Astra Kulturhaus [Ingressos](https://www.astra-berlin.de/events/2022-04-12-amenra)  
+
 __20/05__ - Emperor na Audio [Ingressos](https://www.ticket360.com.br/evento/12236/ingressos-para-emperor)  
 __02/09__ - [Setembro Negro] Facada no Carioca Club [Ingressos](https://www.clubedoingresso.com/evento/setembronegro)  
 __02/09__ - [Setembro Negro] Conan no Carioca Club  
