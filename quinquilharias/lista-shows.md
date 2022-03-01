@@ -191,7 +191,7 @@ __01/03__ - Amenra na Fabrique Club
 __12/03__ - SURRA no Fabrique Club  [Ingressos](https://www.clubedoingresso.com/evento/surra-damnyouth-fossilization-sanguedebode-thedamnnation)  
 __12/03__ - Fossilization no Fabrique Club  
 __20/05__ - Emperor na Audio [Ingressos](https://www.ticket360.com.br/evento/12236/ingressos-para-emperor)  
-__02/09__ - [Setembro Negro] Facada no Carioca Club[Ingressos](https://www.clubedoingresso.com/evento/setembronegro)  
+__02/09__ - [Setembro Negro] Facada no Carioca Club [Ingressos](https://www.clubedoingresso.com/evento/setembronegro)  
 __02/09__ - [Setembro Negro] Conan no Carioca Club  
 __02/09__ - [Setembro Negro] Harakiri from the Sky no Carioca Club  
 __02/09__ - [Setembro Negro] Angel Witch no Carioca Club  
