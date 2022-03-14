@@ -199,7 +199,7 @@ __05/04__ - Eyehategod no Goldgrube (Kassel) :de: [Ingressos](https://goldgrube.
 __05/04__ - Svetlanas no Goldgrube (Kassel) :de:  
 __08/04__ - God Is an Astronaut no Hole44 (Berlin) :de: [Ingressos](https://www.dodotickets.de/8008/god-is-an-astronaut)  
 __12/04__ - Amenra no Astra Kulturhaus (Berlin) :de: [Ingressos](https://www.astra-berlin.de/events/2022-04-12-amenra)  
-__04/05__ - Anneke van Giersbergen no Hole44 (Berlin) [Ingressos](https://www.eventim.de/artist/anneke-van-giersbergen/?amp;utm_source=facebook&amp;utm_medium=so&amp;utm_campaign=Anneke%20van%20Giersbergen.KW22&amp;utm_content=post.bild&affiliate=ZEE&affiliate=BNO&utm_source=awin&utm_medium=affiliate&utm_campaign=97249&awc=11388_1647267490_0813f31147ed1db34a313990bcb8204f)  
+__04/05__ - Anneke van Giersbergen no Hole44 (Berlin) :de: [Ingressos](https://www.eventim.de/artist/anneke-van-giersbergen/?amp;utm_source=facebook&amp;utm_medium=so&amp;utm_campaign=Anneke%20van%20Giersbergen.KW22&amp;utm_content=post.bild&affiliate=ZEE&affiliate=BNO&utm_source=awin&utm_medium=affiliate&utm_campaign=97249&awc=11388_1647267490_0813f31147ed1db34a313990bcb8204f)  
 
 __20/05__ - Emperor na Audio :brazil: [Ingressos](https://www.ticket360.com.br/evento/12236/ingressos-para-emperor)  
 __06/06__ - Einstürzende Neubauten no KonzertHaus (Berlin) :de:  
