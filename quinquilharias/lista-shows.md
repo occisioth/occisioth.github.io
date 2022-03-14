@@ -1,216 +1,217 @@
 ## 2009
 
-__19/03__ - Elma no MDC Lab #1  
-__15/05__ - Heaven & Hell no Credicard Hall  
-__07/11__ - [Maquinaria Fest] Faith no More na Chácara do Jockey  
-__07/11__ - [Maquinaria Fest] Sepultura na Chácara do Jockey  
-__07/11__ - [Maquinaria Fest] Deftones na Chácara do Jockey  
-__07/11__ - [Maquinaria Fest] Jane's Addiction na Chácara do Jockey  
+__19/03__ - Elma no MDC Lab #1 :brazil:  
+__15/05__ - Heaven & Hell no Credicard Hall :brazil:  
+__07/11__ - [Maquinaria Fest] Faith no More na Chácara do Jockey :brazil:  
+__07/11__ - [Maquinaria Fest] Sepultura na Chácara do Jockey :brazil:  
+__07/11__ - [Maquinaria Fest] Deftones na Chácara do Jockey :brazil:  
+__07/11__ - [Maquinaria Fest] Jane's Addiction na Chácara do Jockey :brazil:  
 
 ## 2010
 
-__24/04__ - Megadeth no Credicard Hall  
-__15/05__ - [KoolMetal Fest] Napalm Death no Espaço Victory  
-__15/05__ - [KoolMetal Fest] Suffocation no Espaço Victory  
-__15/05__ - [KoolMetal Fest] Violator no Espaço Victory  
-__15/05__ - [KoolMetal Fest] D.E.R no Espaço Victory  
-__15/05__ - [KoolMetal Fest] Western Days no Espaço Victory  
-__16/11__ - Massive Attack no HSBC Hall  
-__16/11__ - Martina Topley-Bird no HSBC Hall  
+__24/04__ - Megadeth no Credicard Hall :brazil:  
+__15/05__ - [KoolMetal Fest] Napalm Death no Espaço Victory :brazil:  
+__15/05__ - [KoolMetal Fest] Suffocation no Espaço Victory :brazil:  
+__15/05__ - [KoolMetal Fest] Violator no Espaço Victory :brazil:  
+__15/05__ - [KoolMetal Fest] D.E.R no Espaço Victory :brazil:  
+__15/05__ - [KoolMetal Fest] Western Days no Espaço Victory :brazil:  
+__16/11__ - Massive Attack no HSBC Hall :brazil:  
+__16/11__ - Martina Topley-Bird no HSBC Hall :brazil:  
 
 ## 2011
 
-__02/07__ - UDR no Inferno Club  
+__02/07__ - UDR no Inferno Club :brazil:  
 
 ## 2012
 
-__11/03__ - Morrissey no Espaço das Américas  
-__11/03__ - Kristeen Young no Espaço das Américas  
-__07/04__ - [Lollapalooza] Foo Fighters no Jockey Clube  
-__14/04__ - Gui Boratto no Fabrique  
+__11/03__ - Morrissey no Espaço das Américas :brazil:  
+__11/03__ - Kristeen Young no Espaço das Américas :brazil:  
+__07/04__ - [Lollapalooza] Foo Fighters no Jockey Clube :brazil:  
+__14/04__ - Gui Boratto no Fabrique :brazil:  
 
 ## 2013
 
-__29/03__ - [Lollapalooza] Of Monsters and Men no Jockey Clube  
-__29/03__ - [Lollapalooza] Crystal Castles no Jockey Clube  
-__29/03__ - [Lollapalooza] The Flamimg Lips no Jockey Clube  
-__29/03__ - [Lollapalooza] Deadmau5 no Jockey Clube  
-__29/03__ - [Lollapalooza] Knife Party no Jockey Clube  
-__30/03__ - [Lollapalooza] Tomahawk no Jockey Clube  
-__30/03__ - [Lollapalooza] Queens of The Stone Age no Jockey Clube  
-__30/03__ - [Lollapalooza] A Perfect Circle no Jockey Clube  
-__30/03__ - [Lollapalooza] The Black Keys no Jockey Clube  
-__31/03__ - [Lollapalooza] Puscifer no Jockey Clube  
-__31/03__ - [Lollapalooza] Kaiser Chiefs no Jockey Clube  
-__31/03__ - [Lollapalooza] The Hives no Jockey Clube  
-__31/03__ - [Lollapalooza] Pearl Jam no Jockey Clube  
-__10/04__ - DOWN no Carioca Club  
-__11/04__ - Carcass no Carioca Club  
-__04/08__ - [Extreme Hate Festival] Vader no Carioca Club  
-__04/08__ - [Extreme Hate Festival] Suffocation [2x] no Carioca Club  
-__04/08__ - [Extreme Hate Festival] Marduk no Carioca Club  
-__20/09__ - [Live Music Rocks] Iron Maiden na Arena Anhembi  
-__20/09__ - [Live Music Rocks] Ghost B.C. na Arena Anhembi  
-__20/09__ - [Live Music Rocks] Slayer na Arena Anhembi  
-__11/10__ - Black Sabbath no Campo de Marte   
-__11/10__ - Megadeth [2x] no Campo de Marte  
-__13/10__ - Anathema no Carioca Club   
-__16/11__ - Meshuggah no Carioca Club   
-__20/11__ - CocoRosie  no Cine Jóia  
+__29/03__ - [Lollapalooza] Of Monsters and Men no Jockey Clube :brazil:  
+__29/03__ - [Lollapalooza] Crystal Castles no Jockey Clube :brazil:  
+__29/03__ - [Lollapalooza] The Flamimg Lips no Jockey Clube :brazil:  
+__29/03__ - [Lollapalooza] Deadmau5 no Jockey Clube :brazil:  
+__29/03__ - [Lollapalooza] Knife Party no Jockey Clube :brazil:  
+__30/03__ - [Lollapalooza] Tomahawk no Jockey Clube :brazil:  
+__30/03__ - [Lollapalooza] Queens of The Stone Age no Jockey Clube :brazil:  
+__30/03__ - [Lollapalooza] A Perfect Circle no Jockey Clube :brazil:  
+__30/03__ - [Lollapalooza] The Black Keys no Jockey Clube :brazil:  
+__31/03__ - [Lollapalooza] Puscifer no Jockey Clube :brazil:  
+__31/03__ - [Lollapalooza] Kaiser Chiefs no Jockey Clube :brazil:  
+__31/03__ - [Lollapalooza] The Hives no Jockey Clube :brazil:  
+__31/03__ - [Lollapalooza] Pearl Jam no Jockey Clube :brazil:  
+__10/04__ - DOWN no Carioca Club :brazil:  
+__11/04__ - Carcass no Carioca Club :brazil:  
+__04/08__ - [Extreme Hate Festival] Vader no Carioca Club :brazil:  
+__04/08__ - [Extreme Hate Festival] Suffocation [2x] no Carioca Club :brazil:  
+__04/08__ - [Extreme Hate Festival] Marduk no Carioca Club :brazil:  
+__20/09__ - [Live Music Rocks] Iron Maiden na Arena Anhembi :brazil:  
+__20/09__ - [Live Music Rocks] Ghost B.C. na Arena Anhembi :brazil:  
+__20/09__ - [Live Music Rocks] Slayer na Arena Anhembi :brazil:  
+__11/10__ - Black Sabbath no Campo de Marte :brazil:  
+__11/10__ - Megadeth [2x] no Campo de Marte :brazil:  
+__13/10__ - Anathema no Carioca Club :brazil:  
+__16/11__ - Meshuggah no Carioca Club :brazil:  
+__20/11__ - CocoRosie  no Cine Jóia :brazil:  
 
 ## 2014
 
-__24/01__ - EMICIDA + Don L  no Cine Joia  
-__21/04__ - Torture Squad no Carioca Club   
-__21/04__ - Hypocrisy no Carioca Club  
-__18/05__ - Rotting Christ no Hangar 110  
-__24/05__ - Andy McKee no Bourbon Street  
-__03/08__ - The Sword no Cine Jóia  
-__03/08__ - Clutch no Cine Jóia  
+__24/01__ - EMICIDA + Don L  no Cine Joia :brazil:  
+__21/04__ - Torture Squad no Carioca Club :brazil:  
+__21/04__ - Hypocrisy no Carioca Club :brazil:  
+__18/05__ - Rotting Christ no Hangar 110 :brazil:  
+__24/05__ - Andy McKee no Bourbon Street :brazil:  
+__03/08__ - The Sword no Cine Jóia :brazil:  
+__03/08__ - Clutch no Cine Jóia :brazil:  
 
 ## 2015
 
-__07/03__ - Saturndust no Dissenso Lounge  
-__07/03__ - Huey no Dissenso Lounge  
-__07/03__ - E A Terra Nunca Me Pareceu Tão Distante no Dissenso Lounge  
-__04/04__ - Jupiterian no Morfeus Club  
-__04/04__ - Death by Starvation no Morfeus Club  
-__04/04__ - Hierofante no Morfeus Club  
-__05/04__ - Desalmado no Morfeus Club  
-__05/04__ - Meant to Suffer no Morfeus Club  
-__10/04__ - Herod no Serralheria  
-__09/05__ - E A Terra Nunca Me Pareceu Tão Distante [2x] na Casa do Mancha  
-__14/05__ - Jair Naves canta Patti Smith no SESC Vila Mariana  
-__30/05__ - Mark Lanegan no Cine Jóia  
-__31/05__ - Mars Red Sky no Inferno Club  
-__31/05__ - Saturndust no Inferno Club  
-__31/05__ - Hammerhead Blues no Inferno Club  
-__31/05__ - Hierofante no Inferno Club  
-__24/09__ - Faith no More [2x] no Espaço das Americas  
-__26/09__ - Lee Ranaldo no Largo da Batata  
-__26/09__ - Cidadão Instigado no Largo da Batata  
-__27/09__ - Huey [2x] no Centro Cultural São Paulo  
-__30/09__ - Steve Shelley no Associação Cultural Santa Cecilia  
-__13/10__ - Huey [3x] na Alameda Rio Claro  
-__25/10__ - Boogarins no Mirante 9 de Julho  
-__31/10__ - Noala no Dissenso Studio  
-__31/10__ - Saturndust no Dissenso Studio  
-__31/10__ - Crushing Darkness no Dissenso Studio  
-__31/10__ - Hierofante no Dissenso Studio  
-__26/11__ - Herod [2x] na Casa do Mancha  
-__26/11__ - Loomer na Casa do Mancha  
-__04/12__ - Elza Soares no SESC Pompéia  
-__05/12__ - Ruido/mm na Casa do Mancha  
-__05/12__ - Mais Valia na Casa do Mancha  
+__07/03__ - Saturndust no Dissenso Lounge :brazil:  
+__07/03__ - Huey no Dissenso Lounge :brazil:  
+__07/03__ - E A Terra Nunca Me Pareceu Tão Distante no Dissenso Lounge :brazil:  
+__04/04__ - Jupiterian no Morfeus Club :brazil:  
+__04/04__ - Death by Starvation no Morfeus Club :brazil:  
+__04/04__ - Hierofante no Morfeus Club :brazil:  
+__05/04__ - Desalmado no Morfeus Club :brazil:  
+__05/04__ - Meant to Suffer no Morfeus Club :brazil:  
+__10/04__ - Herod no Serralheria :brazil:  
+__09/05__ - E A Terra Nunca Me Pareceu Tão Distante [2x] na Casa do Mancha :brazil:  
+__14/05__ - Jair Naves canta Patti Smith no SESC Vila Mariana :brazil:  
+__30/05__ - Mark Lanegan no Cine Jóia :brazil:  
+__31/05__ - Mars Red Sky no Inferno Club :brazil:  
+__31/05__ - Saturndust no Inferno Club :brazil:  
+__31/05__ - Hammerhead Blues no Inferno Club :brazil:  
+__31/05__ - Hierofante no Inferno Club :brazil:  
+__24/09__ - Faith no More [2x] no Espaço das Americas :brazil:  
+__26/09__ - Lee Ranaldo no Largo da Batata :brazil:  
+__26/09__ - Cidadão Instigado no Largo da Batata :brazil:  
+__27/09__ - Huey [2x] no Centro Cultural São Paulo :brazil:  
+__30/09__ - Steve Shelley no Associação Cultural Santa Cecilia :brazil:  
+__13/10__ - Huey [3x] na Alameda Rio Claro :brazil:  
+__25/10__ - Boogarins no Mirante 9 de Julho :brazil:  
+__31/10__ - Noala no Dissenso Studio :brazil:  
+__31/10__ - Saturndust no Dissenso Studio :brazil:  
+__31/10__ - Crushing Darkness no Dissenso Studio :brazil:  
+__31/10__ - Hierofante [2x] no Dissenso Studio :brazil:  
+__26/11__ - Herod [2x] na Casa do Mancha :brazil:  
+__26/11__ - Loomer na Casa do Mancha :brazil:  
+__04/12__ - Elza Soares no SESC Pompéia :brazil:  
+__05/12__ - Ruido/mm na Casa do Mancha :brazil:  
+__05/12__ - Mais Valia na Casa do Mancha :brazil:  
 
 ## 2016
 
-__26/03__ - Jupiterian [2x] no Estudio Som  
-__26/03__ - Mythological Cold Towers no Estudio Som  
-__09/07__ - Magnetita no Centro Cultural Zapata   
-__09/07__ - Umbilichaos no Centro Cultural Zapata  
-__09/07__ - Crushing Darkness no Centro Cultural Zapata   
-__10/07__ - Nvblado na Clash Club   
-__10/07__ - E a terra Nunca me Pareceu Tão Distante [3x] na Clash Club  
-__10/07__ - Deafheaven na Clash Club  
-__04/09__ - [Overload Music Festival] Katatonia no Carioca Club  
-__04/09__ - [Overload Music Festival] Alcest no Carioca Club  
-__04/09__ - [Overload Music Festival] Labirinto no Carioca Club  
-__04/09__ - [Overload Music Festival] Vincent Cavanagh no Carioca Club  
-__07/09__ - [Maximus Festival] Disturbed no Autódromo de Interlagos  
-__07/09__ - [Maximus Festival] Marilyn Manson no Autódromo de Interlagos  
-__07/09__ - [Maximus Festival] Rammstein no Autódromo de Interlagos  
-__11/09__ - Lee Ranaldo [2x] no SESC Belenzinho  
-__27/11__ - Adrian Belew Powertrio na Carioca Club  
+__26/03__ - Jupiterian [2x] no Estudio Som :brazil:  
+__26/03__ - Mythological Cold Towers no Estudio Som :brazil:  
+__09/07__ - Magnetita no Centro Cultural Zapata :brazil:   
+__09/07__ - Umbilichaos no Centro Cultural Zapata :brazil:  
+__09/07__ - Crushing Darkness no Centro Cultural Zapata :brazil:   
+__10/07__ - Nvblado na Clash Clu :brazil:b   
+__10/07__ - E a terra Nunca me Pareceu Tão Distante [3x] na Clash Club :brazil:  
+__10/07__ - Deafheaven na Clash Club :brazil:  
+__04/09__ - [Overload Music Festival] Katatonia no Carioca Club :brazil:  
+__04/09__ - [Overload Music Festival] Alcest no Carioca Club :brazil:  
+__04/09__ - [Overload Music Festival] Labirinto no Carioca Club :brazil:  
+__04/09__ - [Overload Music Festival] Vincent Cavanagh no Carioca Club :brazil:  
+__07/09__ - [Maximus Festival] Disturbed no Autódromo de Interlagos :brazil:  
+__07/09__ - [Maximus Festival] Marilyn Manson no Autódromo de Interlagos :brazil:  
+__07/09__ - [Maximus Festival] Rammstein no Autódromo de Interlagos :brazil:  
+__11/09__ - Lee Ranaldo [2x] no SESC Belenzinho :brazil:  
+__27/11__ - Adrian Belew Powertrio na Carioca Club :brazil:  
 
 ## 2017
 
-__30/04__ - National no Dissenso Lounge  
-__30/04__ - Labirinto [2x] no Dissenso Lounge  
-__06/05__ - Ruído/mm [2x] no CCSP  
-__27/06__ - [Dia da Música] Ralo no Largo da Batata  
-__27/06__ - [Dia da Música] Jupiterian [3x] no Largo da Batata  
-__16/07__ - Ventre no CCSP  
-__16/07__ - E A Terra Nunca Me Pareceu Tão Distante [4x] no CCSP  
-__12/08__ - Anathema [2x] no Carioca Club  
-__12/09__ - Devendra Banhart no Tropical Butantã  
-__08/10__ - E A Terra Nunca Me Pareceu Tão Distante [5x] no Casa das Caldeiras  
-__08/10__ - Mais Valia no Casa das Caldeiras  
-__08/10__ - Ema Stoned no Casa das Caldeiras  
-__14/12__ - Satanique Samba Trio no CCSP 
+__30/04__ - National no Dissenso Lounge :brazil:  
+__30/04__ - Labirinto [2x] no Dissenso Lounge :brazil:  
+__06/05__ - Ruído/mm [2x] no CCSP :brazil:  
+__27/06__ - [Dia da Música] Ralo no Largo da Batata :brazil:  
+__27/06__ - [Dia da Música] Jupiterian [3x] no Largo da Batata :brazil:  
+__16/07__ - Ventre no CCSP :brazil:  
+__16/07__ - E A Terra Nunca Me Pareceu Tão Distante [4x] no CCSP :brazil:  
+__12/08__ - Anathema [2x] no Carioca Club :brazil:  
+__12/09__ - Devendra Banhart no Tropical Butantã :brazil:  
+__08/10__ - E A Terra Nunca Me Pareceu Tão Distante [5x] no Casa das Caldeiras :brazil:  
+__08/10__ - Mais Valia no Casa das Caldeiras :brazil:  
+__08/10__ - Ema Stoned no Casa das Caldeiras :brazil:  
+__14/12__ - Satanique Samba Trio no CCSP :brazil: 
 
 ## 2018
 
-__04/02__ - Jupiterian [4x] no CCSP  
-__04/02__ - Herod [3x] no CCSP  
-__04/02__ - Yantra no Hotel Bar  
-__08/02__ - Rakta no CCSP  
-__13/02__ - Desalmado no Dissenso Lounge  
-__13/02__ - Besta no Dissenso Lounge  
-__22/04__ - Flying Lotus no Allianz Park  
-__22/04__ - Radiohead no Allianz Park  
-__06/05__ - Cosmo Grão no CCSP  
-__06/05__ - Huey [4x] no CCSP  
-__27/05__ - Steve Wilson no Carioca Clube  
-__30/06__ - [Dia da Música] E A Terra Nunca Me Pareceu Tão Distante [6x] no Breve  
-__30/06__ - [Dia da Música] Kalouv no Z Carniceria  
-__20/07__ - Maquinas no CCSP  
-__20/07__ - Astronauta Marinho no CCSP  
-__28/07__ - Basalt no CCSP  
-__28/07__ - Frieza no CCSP  
-__14/10__ - Nick Cave & Bad Seeds no Espaço das Americas  
-__28/12__ - Acavernus no CCSC  
-__28/12__ - Deaf Kids no CCSC  
+__04/02__ - Jupiterian [4x] no CCSP :brazil:  
+__04/02__ - Herod [3x] no CCSP :brazil:  
+__04/02__ - Yantra no Hotel Bar :brazil:  
+__08/02__ - Rakta no CCSP :brazil:  
+__13/02__ - Desalmado no Dissenso Lounge :brazil:  
+__13/02__ - Besta no Dissenso Lounge :brazil:  
+__22/04__ - Flying Lotus no Allianz Park :brazil:  
+__22/04__ - Radiohead no Allianz Park :brazil:  
+__06/05__ - Cosmo Grão no CCSP :brazil:  
+__06/05__ - Huey [4x] no CCSP :brazil:  
+__27/05__ - Steve Wilson no Carioca Clube :brazil:  
+__27/05__ - Steve Wilson no Carioca Clube :brazil:  
+__30/06__ - [Dia da Música] E A Terra Nunca Me Pareceu Tão Distante [6x] no Breve :brazil:  
+__30/06__ - [Dia da Música] Kalouv no Z Carniceria :brazil:  
+__20/07__ - Maquinas no CCSP :brazil:  
+__20/07__ - Astronauta Marinho no CCSP :brazil:  
+__28/07__ - Basalt no CCSP :brazil:  
+__28/07__ - Frieza no CCSP :brazil:  
+__14/10__ - Nick Cave & Bad Seeds no Espaço das Americas :brazil:  
+__28/12__ - Acavernus no CCSC :brazil:  
+__28/12__ - Deaf Kids no CCSC :brazil:  
 
 ## 2019  
-__20/01__ - RAKTA no CCSP  
-__20/01__ - Mueran Humanos no CCSP  
-__26/01__ - Philip H. Anselmo and The Illegals no Tropical Butantã  
-__02/02__ - Anathema [3x] no Carioca Club  
-__03/04__ - SUNN O))) (audition) at Säule  
-__14/04__ - [Roadburn Festival] Sleep no Roadburn Festival  
-__14/04__ - [Roadburn Festival] THOU no Roadburn Festival  
-__14/04__ - [Roadburn Festival] Daughters no Roadburn Festival  
-__14/04__ - [Roadburn Festival] Have a Nice Life no Roadburn Festival  
-__14/04__ - [Roadburn Festival] Old Man Gloom no Roadburn Festival  
-__09/05__ - A Place to Bury Strangers no CCSP  
-__12/05__ - Daughters no Fabrique Club  
-__15/05__ - Stephen O'Malley no Sesc Paulista  
-__23/06__ - Baroness no Fabrique  
-__07/09__ - [Setembro Negro] Full of Hell no Carioca Club  
-__07/09__ - [Setembro Negro] UADA no Carioca Club  
-__07/09__ - [Setembro Negro] Rotten Sound no Carioca Club  
-__07/09__ - [Setembro Negro] Monolord no Carioca Club  
+__20/01__ - RAKTA no CCSP :brazil:  
+__20/01__ - Mueran Humanos no CCSP :brazil:  
+__26/01__ - Philip H. Anselmo and The Illegals no Tropical Butantã :brazil:  
+__02/02__ - Anathema [3x] no Carioca Club :brazil:  
+__03/04__ - SUNN O))) (audition) at Säule :de:  
+__14/04__ - [Roadburn Festival] Sleep no Roadburn Festival :netherlands:  
+__14/04__ - [Roadburn Festival] THOU no Roadburn Festival :netherlands:  
+__14/04__ - [Roadburn Festival] Daughters no Roadburn Festival :netherlands:  
+__14/04__ - [Roadburn Festival] Have a Nice Life no Roadburn Festival :netherlands:  
+__14/04__ - [Roadburn Festival] Old Man Gloom no Roadburn Festival :netherlands:  
+__09/05__ - A Place to Bury Strangers no CCSP :brazil:  
+__12/05__ - Daughters [2x] no Fabrique Club :brazil:  
+__15/05__ - Stephen O'Malley no Sesc Paulista :brazil:  
+__23/06__ - Baroness no Fabrique :brazil:  
+__07/09__ - [Setembro Negro] Full of Hell no Carioca Club :brazil:  
+__07/09__ - [Setembro Negro] UADA no Carioca Club :brazil:  
+__07/09__ - [Setembro Negro] Rotten Sound no Carioca Club :brazil:  
+__07/09__ - [Setembro Negro] Monolord no Carioca Club :brazil:  
 
 ## 2020  
-__01/03__ - Amenra na Fabrique Club  
+__01/03__ - Amenra na Fabrique Club :brazil:  
 
 ## 2022  
-__12/03__ - Damn Youth no Fabrique Club 
+__12/03__ - Damn Youth no Fabrique Club :brazil: 
 
 ### upcoming
-__25/03__ - The Ruins of Beverast no ORWO Haus (Berlin) [Ingressos](https://folter666shop.de/de/Tickets/Hardticket/the-ruins-of-beverast-grave-miasma-fuoco-fatuo-hardticket.html)  
-__25/03__ - Fuoco Fatuo no ORWO Haus (Berlin)  
-__25/03__ - Grave Miasma no ORWO Haus (Berlin)  
+__25/03__ - The Ruins of Beverast no ORWO Haus (Berlin) :de: [Ingressos](https://folter666shop.de/de/Tickets/Hardticket/the-ruins-of-beverast-grave-miasma-fuoco-fatuo-hardticket.html)  
+__25/03__ - Fuoco Fatuo no ORWO Haus (Berlin) :de:  
+__25/03__ - Grave Miasma no ORWO Haus (Berlin) :de:  
 __26/03__ - Marduk no ORWO Haus (Berlin) [Ingressos](https://folter666shop.de/de/Tickets/Hardticket/united-titans-2022-marduk-vader-hardticket.html)  
-__26/03__ - Vader no ORWO Haus (Berlin)   
-__05/04__ - Eyehategod no Goldgrube (Kassel) [Ingressos](https://goldgrube.tickettoaster.de/produkte/41709-tickets-eyehategod-sventlanas-goldgrube-kassel-am-05-04-2022)  
-__05/04__ - Svetlanas no Goldgrube (Kassel)  
-__08/04__ - God Is an Astronaut no Hole44 (Berlin) [Ingressos](https://www.dodotickets.de/8008/god-is-an-astronaut)  
-__12/04__ - Amenra no Astra Kulturhaus (Berlin) [Ingressos](https://www.astra-berlin.de/events/2022-04-12-amenra)  
+__26/03__ - Vader no ORWO Haus (Berlin) :de:   
+__05/04__ - Eyehategod no Goldgrube (Kassel) :de: [Ingressos](https://goldgrube.tickettoaster.de/produkte/41709-tickets-eyehategod-sventlanas-goldgrube-kassel-am-05-04-2022)  
+__05/04__ - Svetlanas no Goldgrube (Kassel) :de:  
+__08/04__ - God Is an Astronaut no Hole44 (Berlin) :de: [Ingressos](https://www.dodotickets.de/8008/god-is-an-astronaut)  
+__12/04__ - Amenra no Astra Kulturhaus (Berlin) :de: [Ingressos](https://www.astra-berlin.de/events/2022-04-12-amenra)  
 __04/05__ - Anneke van Giersbergen no Hole44 (Berlin) [Ingressos](https://www.eventim.de/artist/anneke-van-giersbergen/?amp;utm_source=facebook&amp;utm_medium=so&amp;utm_campaign=Anneke%20van%20Giersbergen.KW22&amp;utm_content=post.bild&affiliate=ZEE&affiliate=BNO&utm_source=awin&utm_medium=affiliate&utm_campaign=97249&awc=11388_1647267490_0813f31147ed1db34a313990bcb8204f)  
 
-__20/05__ - Emperor na Audio [Ingressos](https://www.ticket360.com.br/evento/12236/ingressos-para-emperor)  
-__06/06__ - Einstürzende Neubauten no KonzertHaus (Berlin)  
-__02/09__ - [Setembro Negro] Facada no Carioca Club [Ingressos](https://www.clubedoingresso.com/evento/setembronegro)  
-__02/09__ - [Setembro Negro] Conan no Carioca Club  
-__02/09__ - [Setembro Negro] Harakiri from the Sky no Carioca Club  
-__02/09__ - [Setembro Negro] Angel Witch no Carioca Club  
-__03/09__ - [Setembro Negro] Gatecreeper no Carioca Club  
-__03/09__ - [Setembro Negro] Helheim no Carioca Club  
-__04/09__ - [Setembro Negro] ROT no Carioca Club  
-__04/09__ - [Setembro Negro] InterArma no Carioca Club  
-__04/09__ - [Setembro Negro] Tribulation no Carioca Club  
-__04/09__ - [Setembro Negro] Diamond Head no Carioca Club  
+__20/05__ - Emperor na Audio :brazil: [Ingressos](https://www.ticket360.com.br/evento/12236/ingressos-para-emperor)  
+__06/06__ - Einstürzende Neubauten no KonzertHaus (Berlin) :de:  
+__02/09__ - [Setembro Negro] Facada no Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/setembronegro)  
+__02/09__ - [Setembro Negro] Conan no Carioca Club :brazil:  
+__02/09__ - [Setembro Negro] Harakiri from the Sky no Carioca Club :brazil:  
+__02/09__ - [Setembro Negro] Angel Witch no Carioca Club :brazil:  
+__03/09__ - [Setembro Negro] Gatecreeper no Carioca Club :brazil:  
+__03/09__ - [Setembro Negro] Helheim no Carioca Club :brazil:  
+__04/09__ - [Setembro Negro] ROT no Carioca Club :brazil:  
+__04/09__ - [Setembro Negro] InterArma no Carioca Club :brazil:  
+__04/09__ - [Setembro Negro] Tribulation no Carioca Club :brazil:  
+__04/09__ - [Setembro Negro] Diamond Head no Carioca Club :brazil:  
 
 
