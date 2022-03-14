@@ -203,7 +203,7 @@ __12/04__ - Amenra no Astra Kulturhaus (Berlin) [Ingressos](https://www.astra-be
 __04/05__ - Anneke van Giersbergen no Hole44 (Berlin) [Ingressos](https://www.eventim.de/artist/anneke-van-giersbergen/?amp;utm_source=facebook&amp;utm_medium=so&amp;utm_campaign=Anneke%20van%20Giersbergen.KW22&amp;utm_content=post.bild&affiliate=ZEE&affiliate=BNO&utm_source=awin&utm_medium=affiliate&utm_campaign=97249&awc=11388_1647267490_0813f31147ed1db34a313990bcb8204f)  
 
 __20/05__ - Emperor na Audio [Ingressos](https://www.ticket360.com.br/evento/12236/ingressos-para-emperor)  
-__06/06__ - Einstürzende Neubauten no KonzertHaus (Berlin)
+__06/06__ - Einstürzende Neubauten no KonzertHaus (Berlin)  
 __02/09__ - [Setembro Negro] Facada no Carioca Club [Ingressos](https://www.clubedoingresso.com/evento/setembronegro)  
 __02/09__ - [Setembro Negro] Conan no Carioca Club  
 __02/09__ - [Setembro Negro] Harakiri from the Sky no Carioca Club  
