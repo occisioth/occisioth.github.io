@@ -185,12 +185,10 @@ __07/09__ - [Setembro Negro] Monolord no Carioca Club
 ## 2020  
 __01/03__ - Amenra na Fabrique Club  
 
-## 2022
+## 2022  
+__12/03__ - Damn Youth no Fabrique Club 
 
 ### upcoming
-__12/03__ - SURRA no Fabrique Club  [Ingressos](https://www.clubedoingresso.com/evento/surra-damnyouth-fossilization-sanguedebode-thedamnnation)  
-__12/03__ - Fossilization no Fabrique Club 
-
 __25/03__ - The Ruins of Beverast no ORWO Haus [Ingressos](https://folter666shop.de/de/Tickets/Hardticket/the-ruins-of-beverast-grave-miasma-fuoco-fatuo-hardticket.html)  
 __25/03__ - Fuoco Fatuo no ORWO Haus (Berlin)  
 __25/03__ - Grave Miasma no ORWO Haus (Berlin)  
