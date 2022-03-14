@@ -189,7 +189,7 @@ __01/03__ - Amenra na Fabrique Club
 __12/03__ - Damn Youth no Fabrique Club 
 
 ### upcoming
-__25/03__ - The Ruins of Beverast no ORWO Haus [Ingressos](https://folter666shop.de/de/Tickets/Hardticket/the-ruins-of-beverast-grave-miasma-fuoco-fatuo-hardticket.html)  
+__25/03__ - The Ruins of Beverast no ORWO Haus (Berlin) [Ingressos](https://folter666shop.de/de/Tickets/Hardticket/the-ruins-of-beverast-grave-miasma-fuoco-fatuo-hardticket.html)  
 __25/03__ - Fuoco Fatuo no ORWO Haus (Berlin)  
 __25/03__ - Grave Miasma no ORWO Haus (Berlin)  
 __26/03__ - Marduk no ORWO Haus (Berlin) [Ingressos](https://folter666shop.de/de/Tickets/Hardticket/united-titans-2022-marduk-vader-hardticket.html)  
