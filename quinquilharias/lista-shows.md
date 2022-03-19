@@ -195,8 +195,6 @@ __25/03__ - Fuoco Fatuo no ORWO Haus (Berlin) :de:
 __25/03__ - Grave Miasma no ORWO Haus (Berlin) :de:  
 __26/03__ - Marduk no ORWO Haus (Berlin) :de:  
 __26/03__ - Vader no ORWO Haus (Berlin) :de:   
-__05/04__ - Eyehategod no Goldgrube (Kassel) :de: [Ingressos](https://goldgrube.tickettoaster.de/produkte/41709-tickets-eyehategod-sventlanas-goldgrube-kassel-am-05-04-2022)  
-__05/04__ - Svetlanas no Goldgrube (Kassel) :de:  
 __08/04__ - God Is an Astronaut no Hole44 (Berlin) :de: [Ingressos](https://www.dodotickets.de/8008/god-is-an-astronaut)  
 __12/04__ - Amenra no Astra Kulturhaus (Berlin) :de: [Ingressos](https://www.astra-berlin.de/events/2022-04-12-amenra)  
 __04/05__ - Anneke van Giersbergen no Hole44 (Berlin) :de: [Ingressos](https://www.eventim.de/artist/anneke-van-giersbergen/?amp;utm_source=facebook&amp;utm_medium=so&amp;utm_campaign=Anneke%20van%20Giersbergen.KW22&amp;utm_content=post.bild&affiliate=ZEE&affiliate=BNO&utm_source=awin&utm_medium=affiliate&utm_campaign=97249&awc=11388_1647267490_0813f31147ed1db34a313990bcb8204f)  
