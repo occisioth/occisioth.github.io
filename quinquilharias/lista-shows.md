@@ -187,7 +187,7 @@ __07/09__ - [Setembro Negro] Monolord no Carioca Club :brazil:
 __01/03__ - Amenra na Fabrique Club :brazil:  
 
 ## 2022  
-__12/03__ - Damn Youth no Fabrique Club :brazil: 
+__12/03__ - Damn Youth no Fabrique Club :brazil:  
 __25/03__ - The Ruins of Beverast no ORWO Haus (Berlin) :de:   
 __25/03__ - Fuoco Fatuo no ORWO Haus (Berlin) :de:  
 __25/03__ - Grave Miasma no ORWO Haus (Berlin) :de:  
