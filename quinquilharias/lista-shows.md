@@ -188,17 +188,14 @@ __01/03__ - Amenra na Fabrique Club :brazil:
 
 ## 2022  
 __12/03__ - Damn Youth no Fabrique Club :brazil: 
-
-### upcoming
 __25/03__ - The Ruins of Beverast no ORWO Haus (Berlin) :de:   
 __25/03__ - Fuoco Fatuo no ORWO Haus (Berlin) :de:  
 __25/03__ - Grave Miasma no ORWO Haus (Berlin) :de:  
-__26/03__ - Marduk no ORWO Haus (Berlin) :de:  
-__26/03__ - Vader no ORWO Haus (Berlin) :de:   
-__08/04__ - God Is an Astronaut no Hole44 (Berlin) :de: [Ingressos](https://www.dodotickets.de/8008/god-is-an-astronaut)  
-__12/04__ - Amenra no Astra Kulturhaus (Berlin) :de: [Ingressos](https://www.astra-berlin.de/events/2022-04-12-amenra)  
-__04/05__ - Anneke van Giersbergen no Hole44 (Berlin) :de: [Ingressos](https://www.eventim.de/artist/anneke-van-giersbergen/?amp;utm_source=facebook&amp;utm_medium=so&amp;utm_campaign=Anneke%20van%20Giersbergen.KW22&amp;utm_content=post.bild&affiliate=ZEE&affiliate=BNO&utm_source=awin&utm_medium=affiliate&utm_campaign=97249&awc=11388_1647267490_0813f31147ed1db34a313990bcb8204f)  
+__08/04__ - God Is an Astronaut no Hole44 (Berlin) :de:  
+__12/04__ - Amenra no Astra Kulturhaus (Berlin) :de:  
 
+### upcoming
+__04/05__ - Anneke van Giersbergen no Hole44 (Berlin) :de: [Ingressos](https://www.eventim.de/artist/anneke-van-giersbergen/?amp;utm_source=facebook&amp;utm_medium=so&amp;utm_campaign=Anneke%20van%20Giersbergen.KW22&amp;utm_content=post.bild&affiliate=ZEE&affiliate=BNO&utm_source=awin&utm_medium=affiliate&utm_campaign=97249&awc=11388_1647267490_0813f31147ed1db34a313990bcb8204f)  
 __20/05__ - Emperor na Audio :brazil:  
 __06/06__ - Einstürzende Neubauten no KonzertHaus (Berlin) :de:  
 __02/09__ - [Setembro Negro] Facada no Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/setembronegro)  
