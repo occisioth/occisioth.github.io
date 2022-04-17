@@ -192,6 +192,7 @@ __25/03__ - The Ruins of Beverast no ORWO Haus (Berlin) :de:
 __25/03__ - Fuoco Fatuo no ORWO Haus (Berlin) :de:  
 __25/03__ - Grave Miasma no ORWO Haus (Berlin) :de:  
 __08/04__ - God Is an Astronaut no Hole44 (Berlin) :de:  
+__08/04__ - Barrens no Hole44 (Berlin) :de:  
 __12/04__ - Amenra no Astra Kulturhaus (Berlin) :de:  
 
 ### upcoming  
