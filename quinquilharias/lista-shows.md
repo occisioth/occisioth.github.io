@@ -110,7 +110,7 @@ __26/03__ - Mythological Cold Towers no Estudio Som :brazil:
 __09/07__ - Magnetita no Centro Cultural Zapata :brazil:   
 __09/07__ - Umbilichaos no Centro Cultural Zapata :brazil:  
 __09/07__ - Crushing Darkness no Centro Cultural Zapata :brazil:   
-__10/07__ - Nvblado na Clash Clu :brazil:b   
+__10/07__ - Nvblado na Clash Club :brazil:   
 __10/07__ - E a terra Nunca me Pareceu Tão Distante [3x] na Clash Club :brazil:  
 __10/07__ - Deafheaven na Clash Club :brazil:  
 __04/09__ - [Overload Music Festival] Katatonia no Carioca Club :brazil:  
