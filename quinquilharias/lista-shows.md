@@ -168,12 +168,12 @@ __20/01__ - RAKTA no CCSP :brazil:
 __20/01__ - Mueran Humanos no CCSP :brazil:  
 __26/01__ - Philip H. Anselmo and The Illegals no Tropical Butantã :brazil:  
 __02/02__ - Anathema [3x] no Carioca Club :brazil:  
-__03/04__ - SUNN O))) (audition) at Säule :de:  
-__14/04__ - [Roadburn Festival] Sleep no Roadburn Festival :netherlands:  
-__14/04__ - [Roadburn Festival] THOU no Roadburn Festival :netherlands:  
-__14/04__ - [Roadburn Festival] Daughters no Roadburn Festival :netherlands:  
-__14/04__ - [Roadburn Festival] Have a Nice Life no Roadburn Festival :netherlands:  
-__14/04__ - [Roadburn Festival] Old Man Gloom no Roadburn Festival :netherlands:  
+__03/04__ - SUNN O))) (audition) at Säule (Berlin) :de:  
+__14/04__ - [Roadburn Festival] Sleep no Roadburn Festival (Tilburg) :netherlands:  
+__14/04__ - [Roadburn Festival] THOU no Roadburn Festival (Tilburg) :netherlands:  
+__14/04__ - [Roadburn Festival] Daughters no Roadburn Festival (Tilburg) :netherlands:  
+__14/04__ - [Roadburn Festival] Have a Nice Life no Roadburn Festival (Tilburg) :netherlands:  
+__14/04__ - [Roadburn Festival] Old Man Gloom no Roadburn Festival (Tilburg) :netherlands:  
 __09/05__ - A Place to Bury Strangers no CCSP :brazil:  
 __12/05__ - Daughters [2x] no Fabrique Club :brazil:  
 __15/05__ - Stephen O'Malley no Sesc Paulista :brazil:  
