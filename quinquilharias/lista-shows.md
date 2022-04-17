@@ -194,10 +194,17 @@ __25/03__ - Grave Miasma no ORWO Haus (Berlin) :de:
 __08/04__ - God Is an Astronaut no Hole44 (Berlin) :de:  
 __12/04__ - Amenra no Astra Kulturhaus (Berlin) :de:  
 
-### upcoming
-__04/05__ - Anneke van Giersbergen no Hole44 (Berlin) :de: [Ingressos](https://www.eventim.de/artist/anneke-van-giersbergen/?amp;utm_source=facebook&amp;utm_medium=so&amp;utm_campaign=Anneke%20van%20Giersbergen.KW22&amp;utm_content=post.bild&affiliate=ZEE&affiliate=BNO&utm_source=awin&utm_medium=affiliate&utm_campaign=97249&awc=11388_1647267490_0813f31147ed1db34a313990bcb8204f)  
+### upcoming  
+__20/04__ - Metá Metá no Mundo Pensante :brazil:  
+__04/05__ - Anneke van Giersbergen no Hole44 (Berlin) :de:   
 __20/05__ - Emperor na Audio :brazil:  
-__06/06__ - Einstürzende Neubauten no KonzertHaus (Berlin) :de:  
+__29/05__ - [KMF] Belphegor no Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/koolmetalfest)  
+__29/05__ - [KMF] Cerberus Attack no Carioca Club :brazil:  
+__29/05__ - [KMF] Crypta no Carioca Club :brazil:  
+__29/05__ - [KMF] Krisium no Carioca Club :brazil:  
+__29/05__ - [KMF] NervoChaos no Carioca Club :brazil:  
+__29/05__ - [KMF] Ratos de Porão no Carioca Club :brazil:  
+__29/05__ - [KMF] Vazio no Carioca Club :brazil:  
 __02/09__ - [Setembro Negro] Facada no Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/setembronegro)  
 __02/09__ - [Setembro Negro] Conan no Carioca Club :brazil:  
 __02/09__ - [Setembro Negro] Harakiri from the Sky no Carioca Club :brazil:  
@@ -208,5 +215,10 @@ __04/09__ - [Setembro Negro] ROT no Carioca Club :brazil:
 __04/09__ - [Setembro Negro] InterArma no Carioca Club :brazil:  
 __04/09__ - [Setembro Negro] Tribulation no Carioca Club :brazil:  
 __04/09__ - [Setembro Negro] Diamond Head no Carioca Club :brazil:  
-
-
+__28/09__ - The Gathering no Manifesto Bar :brazil:  [Ingressos](https://bilheto.com.br/evento/245/The_Gathering)  
+__12/11__ - Shame no Fabrique Club :brazil: [Ingressos](https://www.ingresse.com/shame?utm_source=internal&utm_medium=Meus%20ingressos)  
+__18/12__ - [Knotfest] Slipknot na Arena Anhembi :brazil: [Ingressos](https://www.eventim.com.br/artist/knotfest-2022/)  
+__18/12__ - [Knotfest] Bring me the Horizon na Arena Anhembi :brazil:  
+__18/12__ - [Knotfest] Mr Bungle na Arena Anhembi :brazil:  
+__18/12__ - [Knotfest] Trivium na Arena Anhembi :brazil:  
+__18/12__ - [Knotfest] Sepultura na Arena Anhembi :brazil:  
