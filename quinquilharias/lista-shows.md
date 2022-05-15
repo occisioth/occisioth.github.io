@@ -195,9 +195,9 @@ __08/04__ - God Is an Astronaut no Hole44 (Berlin) :de:
 __08/04__ - Barrens no Hole44 (Berlin) :de:  
 __12/04__ - Amenra no Astra Kulturhaus (Berlin) :de:  
 __20/04__ - Metá Metá no Mundo Pensante :brazil:  
+__04/05__ - Anneke van Giersbergen no Hole44 (Berlin) :de:   
 
 ### upcoming  
-__04/05__ - Anneke van Giersbergen no Hole44 (Berlin) :de:   
 __20/05__ - Emperor na Audio :brazil:  
 __29/05__ - [KMF] Belphegor no Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/koolmetalfest)  
 __29/05__ - [KMF] Cerberus Attack no Carioca Club :brazil:  
