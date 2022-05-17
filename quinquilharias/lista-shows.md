@@ -222,6 +222,7 @@ __04/09__ - [Setembro Negro] Diamond Head no Carioca Club :brazil:
 __11/09__ - Pentagram na Fabrique Club :brazil:  
 __28/09__ - The Gathering no Manifesto Bar :brazil:  [Ingressos](https://bilheto.com.br/evento/245/The_Gathering)  
 __12/11__ - Shame no Fabrique Club :brazil: [Ingressos](https://www.ingresse.com/shame?utm_source=internal&utm_medium=Meus%20ingressos)  
+__19/11__ - Gaerea  
 __18/12__ - [Knotfest] Slipknot na Arena Anhembi :brazil: [Ingressos](https://www.eventim.com.br/artist/knotfest-2022/)  
 __18/12__ - [Knotfest] Bring me the Horizon na Arena Anhembi :brazil:  
 __18/12__ - [Knotfest] Mr Bungle na Arena Anhembi :brazil:  
