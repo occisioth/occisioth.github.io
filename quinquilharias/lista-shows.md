@@ -199,13 +199,6 @@ __04/05__ - Anneke van Giersbergen no Hole44 (Berlin) :de:
 __20/05__ - Emperor na Audio :brazil:  
 
 ### upcoming  
-__29/05__ - [KMF] Belphegor no Carioca Club :brazil:  
-__29/05__ - [KMF] Cerberus Attack no Carioca Club :brazil:  
-__29/05__ - [KMF] Crypta no Carioca Club :brazil:  
-__29/05__ - [KMF] Krisium no Carioca Club :brazil:  
-__29/05__ - [KMF] NervoChaos no Carioca Club :brazil:  
-__29/05__ - [KMF] Ratos de Porão no Carioca Club :brazil:  
-__29/05__ - [KMF] Vazio no Carioca Club :brazil:  
 __09/07__ - Onslaught no Jai Club :brazil:  
 __09/07__ - Infamous Glory no Jai Club :brazil:  
 __09/07__ - Flageladör no Jai Club :brazil:  
