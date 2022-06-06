@@ -212,6 +212,8 @@ __04/09__ - [Setembro Negro] ROT no Carioca Club :brazil:
 __04/09__ - [Setembro Negro] InterArma no Carioca Club :brazil:  
 __04/09__ - [Setembro Negro] Tribulation no Carioca Club :brazil:  
 __04/09__ - [Setembro Negro] Diamond Head no Carioca Club :brazil:  
+__07/09__ - Suffocation  
+__07/09__ - Incantation  
 __11/09__ - Pentagram na Fabrique Club :brazil:  
 __28/09__ - The Gathering no Manifesto Bar :brazil:  [Ingressos](https://bilheto.com.br/evento/245/The_Gathering)  
 __12/11__ - Shame no Fabrique Club :brazil: [Ingressos](https://www.ingresse.com/shame?utm_source=internal&utm_medium=Meus%20ingressos)  
