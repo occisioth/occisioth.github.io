@@ -200,24 +200,30 @@ __20/05__ - Emperor na Audio :brazil:
 
 ### upcoming  
 __09/07__ - Onslaught no Jai Club :brazil:  
+__09/07__ - Uganga no Jai Club :brazil:  
 __09/07__ - Infamous Glory no Jai Club :brazil:  
 __09/07__ - Flageladör no Jai Club :brazil:  
 __02/09__ - [Setembro Negro] Facada no Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/setembronegro)  
 __02/09__ - [Setembro Negro] Conan no Carioca Club :brazil:  
+__02/09__ - [Setembro Negro] Blood Red Throne no Carioca Club :brazil:  
 __02/09__ - [Setembro Negro] Harakiri from the Sky no Carioca Club :brazil:  
 __02/09__ - [Setembro Negro] Angel Witch no Carioca Club :brazil:  
 __03/09__ - [Setembro Negro] Gatecreeper no Carioca Club :brazil:  
 __03/09__ - [Setembro Negro] Helheim no Carioca Club :brazil:  
 __04/09__ - [Setembro Negro] ROT no Carioca Club :brazil:  
 __04/09__ - [Setembro Negro] InterArma no Carioca Club :brazil:  
+__04/09__ - [Setembro Negro] Grave Miasma no Carioca Club :brazil:  
 __04/09__ - [Setembro Negro] Tribulation no Carioca Club :brazil:  
 __04/09__ - [Setembro Negro] Diamond Head no Carioca Club :brazil:  
 __07/09__ - Suffocation  
 __07/09__ - Incantation  
 __11/09__ - Pentagram na Fabrique Club :brazil:  
 __28/09__ - The Gathering no Manifesto Bar :brazil:  [Ingressos](https://bilheto.com.br/evento/245/The_Gathering)  
+__12/10__ - [PoploadFest] Pixies no Centro Esportivo Tietê :brazil:   
+__12/10__ - [PoploadFest] Chet Faker no Centro Esportivo Tietê :brazil:   
+__12/10__ - [PoploadFest] Cat Power no Centro Esportivo Tietê :brazil:   
 __12/11__ - Shame no Fabrique Club :brazil: [Ingressos](https://www.ingresse.com/shame?utm_source=internal&utm_medium=Meus%20ingressos)  
-__19/11__ - Gaerea  
+__19/11__ - Gaerea no Legends Music & Bar. :brazil:  
 __18/12__ - [Knotfest] Slipknot na Arena Anhembi :brazil: [Ingressos](https://www.eventim.com.br/artist/knotfest-2022/)  
 __18/12__ - [Knotfest] Bring me the Horizon na Arena Anhembi :brazil:  
 __18/12__ - [Knotfest] Mr Bungle na Arena Anhembi :brazil:  
