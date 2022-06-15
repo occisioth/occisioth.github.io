@@ -229,3 +229,6 @@ __18/12__ - [Knotfest] Bring me the Horizon na Arena Anhembi :brazil:
 __18/12__ - [Knotfest] Mr Bungle na Arena Anhembi :brazil:  
 __18/12__ - [Knotfest] Trivium na Arena Anhembi :brazil:  
 __18/12__ - [Knotfest] Sepultura na Arena Anhembi :brazil:  
+
+## 2023  
+__02/04__ - Alcest no Carioca Club  
