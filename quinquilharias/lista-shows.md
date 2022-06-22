@@ -199,10 +199,6 @@ __04/05__ - Anneke van Giersbergen no Hole44 (Berlin) :de:
 __20/05__ - Emperor na Audio :brazil:  
 
 ### upcoming  
-__09/07__ - Onslaught no Jai Club :brazil:  
-__09/07__ - Uganga no Jai Club :brazil:  
-__09/07__ - Infamous Glory no Jai Club :brazil:  
-__09/07__ - Flageladör no Jai Club :brazil:  
 __02/09__ - [Setembro Negro] Facada no Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/setembronegro)  
 __02/09__ - [Setembro Negro] Conan no Carioca Club :brazil:  
 __02/09__ - [Setembro Negro] Blood Red Throne no Carioca Club :brazil:  
