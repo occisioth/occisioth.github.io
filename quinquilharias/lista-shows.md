@@ -214,7 +214,7 @@ __04/09__ - [Setembro Negro] Diamond Head no Carioca Club :brazil:
 __07/09__ - Suffocation  
 __07/09__ - Incantation  
 __11/09__ - Pentagram na Fabrique Club :brazil:  
-__24/09__ - Obituary na Fabrique Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/obituary-sp)  
+__24/09__ - Obituary na Fabrique Club :brazil:  
 __28/09__ - The Gathering no Manifesto Bar :brazil:  [Ingressos](https://bilheto.com.br/evento/245/The_Gathering)  
 __12/10__ - [PoploadFest] Pixies no Centro Esportivo Tietê :brazil:   
 __12/10__ - [PoploadFest] Chet Faker no Centro Esportivo Tietê :brazil:   
