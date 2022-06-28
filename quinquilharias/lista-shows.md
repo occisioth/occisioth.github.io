@@ -199,7 +199,7 @@ __04/05__ - Anneke van Giersbergen no Hole44 (Berlin) :de:
 __20/05__ - Emperor na Audio :brazil:  
 
 ### upcoming  
-__02/09__ - [Setembro Negro] Facada no Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/setembronegro)  
+__02/09__ - [Setembro Negro] Facada no Carioca Club :brazil:  
 __02/09__ - [Setembro Negro] Conan no Carioca Club :brazil:  
 __02/09__ - [Setembro Negro] Blood Red Throne no Carioca Club :brazil:  
 __02/09__ - [Setembro Negro] Harakiri from the Sky no Carioca Club :brazil:  
