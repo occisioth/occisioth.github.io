@@ -197,6 +197,8 @@ __12/04__ - Amenra no Astra Kulturhaus (Berlin) :de:
 __20/04__ - Metá Metá no Mundo Pensante :brazil:  
 __04/05__ - Anneke van Giersbergen no Hole44 (Berlin) :de:   
 __20/05__ - Emperor na Audio :brazil:  
+__06/08__ - Podridão na Sabot :brazil:  
+__06/08__ - Infamous Glory na Sabot :brazil:  
 
 ### upcoming  
 __02/09__ - [Setembro Negro] Facada no Carioca Club :brazil:  
