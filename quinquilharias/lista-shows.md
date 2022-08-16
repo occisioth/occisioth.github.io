@@ -223,6 +223,7 @@ __12/10__ - [PoploadFest] Chet Faker no Centro Esportivo Tietê :brazil:
 __12/10__ - [PoploadFest] Cat Power no Centro Esportivo Tietê :brazil:   
 __12/11__ - Shame no Fabrique Club :brazil: [Ingressos](https://www.ingresse.com/shame?utm_source=internal&utm_medium=Meus%20ingressos)  
 __19/11__ - Gaerea no Legends Music & Bar. :brazil:  
+__05/12__ - Animals as Leaders no Carioca Club :brazil: [Ingressos]()  
 __18/12__ - [Knotfest] Slipknot na Arena Anhembi :brazil: [Ingressos](https://www.eventim.com.br/artist/knotfest-2022/)  
 __18/12__ - [Knotfest] Bring me the Horizon na Arena Anhembi :brazil:  
 __18/12__ - [Knotfest] Mr Bungle na Arena Anhembi :brazil:  
