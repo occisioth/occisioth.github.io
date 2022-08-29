@@ -202,15 +202,17 @@ __06/08__ - Infamous Glory na Sabot :brazil:
 
 ### upcoming  
 __02/09__ - [Setembro Negro] Facada no Carioca Club :brazil:  
+__02/09__ - [Setembro Negro] Masacre no Carioca Club :brazil:  
 __02/09__ - [Setembro Negro] Conan no Carioca Club :brazil:  
-__02/09__ - [Setembro Negro] Blood Red Throne no Carioca Club :brazil:  
+__02/09__ - [Setembro Negro] Brujeria no Carioca Club :brazil:  
 __02/09__ - [Setembro Negro] Harakiri from the Sky no Carioca Club :brazil:  
-__02/09__ - [Setembro Negro] Angel Witch no Carioca Club :brazil:  
 __03/09__ - [Setembro Negro] Gatecreeper no Carioca Club :brazil:  
 __03/09__ - [Setembro Negro] Helheim no Carioca Club :brazil:  
+__03/09__ - [Setembro Negro] Weedeater no Carioca Club :brazil:  
+__03/09__ - [Setembro Negro] Heathen no Carioca Club :brazil:  
 __04/09__ - [Setembro Negro] ROT no Carioca Club :brazil:  
 __04/09__ - [Setembro Negro] InterArma no Carioca Club :brazil:  
-__04/09__ - [Setembro Negro] Grave Miasma no Carioca Club :brazil:  
+__04/09__ - [Setembro Negro] Skeletal Remains no Carioca Club :brazil:  
 __04/09__ - [Setembro Negro] Tribulation no Carioca Club :brazil:  
 __04/09__ - [Setembro Negro] Diamond Head no Carioca Club :brazil:  
 __07/09__ - Suffocation no Fabrique Club :brazil:  
