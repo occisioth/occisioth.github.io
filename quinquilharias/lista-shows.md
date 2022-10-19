@@ -219,11 +219,12 @@ __06/07__ - Fossilization no Associação Cultural Cecilia :brazil:
 __07/09__ - Suffocation no Fabrique Club :brazil:  
 __07/09__ - Incantation no Fabrique Club :brazil:  
 __24/09__ - Obituary na Fabrique Club :brazil:  
+__17/10__ - Orochi no Rap in-Cena :brazil:  
+__17/10__ - Racionais MCs no Rap in-Cena :brazil:  
 
 ### upcoming  
-__12/10__ - [PoploadFest] Pixies no Centro Esportivo Tietê :brazil:   
-__12/10__ - [PoploadFest] Chet Faker no Centro Esportivo Tietê :brazil:   
-__12/10__ - [PoploadFest] Cat Power no Centro Esportivo Tietê :brazil:   
+__04/11__ - Dying Fetus no Hangar 110 :brazil: [Ingressos]()  
+__08/11__ - Father John Misty no Cine Jóia :brazil: [Ingressos](https://www.eventim.com.br/fatherjohnmisty)  
 __10/11__ - [Open the Road Festival VIII] Vazio no Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/opentheroadfestival8)  
 __10/11__ - [Open the Road Festival VIII] Mayhem no Carioca Club :brazil:   
 __12/11__ - Shame no Fabrique Club :brazil: [Ingressos](https://www.ingresse.com/shame?utm_source=internal&utm_medium=Meus%20ingressos)  
