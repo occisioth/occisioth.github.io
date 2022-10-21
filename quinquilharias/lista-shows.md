@@ -223,7 +223,6 @@ __17/10__ - Orochi no Rap in-Cena :brazil:
 __17/10__ - Racionais MCs no Rap in-Cena :brazil:  
 
 ### upcoming  
-__04/11__ - Dying Fetus no Hangar 110 :brazil: [Ingressos]()  
 __08/11__ - Father John Misty no Cine Jóia :brazil: [Ingressos](https://www.eventim.com.br/fatherjohnmisty)  
 __10/11__ - [Open the Road Festival VIII] Vazio no Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/opentheroadfestival8)  
 __10/11__ - [Open the Road Festival VIII] Mayhem no Carioca Club :brazil:   
@@ -236,10 +235,9 @@ __05/12__ - Animals as Leaders no Carioca Club :brazil: [Ingressos](https://www.
 __10/12__ - Discharge no Fabrique :brazil: [Ingressos](https://www.clubedoingresso.com/evento/discharge-sp)  
 __11/12__ - Hypocrisy na Audio :brazil: [Ingressos](https://www.ticket360.com.br/evento/25951/ingressos-para-samael-e-hipocrisy-worship-tour-2022)  
 __11/12__ - Samael na Audio :brazil:  
-__18/12__ - [Knotfest] Slipknot na Arena Anhembi :brazil: [Ingressos](https://www.eventim.com.br/artist/knotfest-2022/)  
-__18/12__ - [Knotfest] Mr Bungle na Arena Anhembi :brazil:  
-__18/12__ - [Knotfest] Judas Priest na Arena Anhembi :brazil:  
-__18/12__ - [Knotfest] Sepultura na Arena Anhembi :brazil:  
+__15/12__ - Judas Priest no Vibra :brazil: [Ingressos](https://www.eventim.com.br/event/judas-priest-pantera-vibra-sao-paulo-15973986/)  
+__15/12__ - Pantera no Vibra :brazil:  
 
 ## 2023  
-__02/04__ - Alcest no Carioca Club  
+__25/03__ - Katatonia no Carioca Club :brazil:  
+__02/04__ - Alcest no Carioca Club :brazil:  [Ingressos](https://www.clubedoingresso.com/evento/alcest-sp)  
