@@ -228,11 +228,12 @@ __10/11__ - [Open the Road Festival VIII] Vazio no Carioca Club :brazil: [Ingres
 __10/11__ - [Open the Road Festival VIII] Mayhem no Carioca Club :brazil:   
 __12/11__ - Shame no Fabrique Club :brazil: [Ingressos](https://www.ingresse.com/shame?utm_source=internal&utm_medium=Meus%20ingressos)  
 __19/11__ - Gaerea no Legends Music & Bar. :brazil:  
-__20/11__ - [Oxigenio Festival] CPM22 no Campo de Marte :brazil: [Ingressos](https://pixelticket.com.br/eventos/10147/dia-20-11-oxigenio-festival-2022/ingressos)  
+__20/11__ - [Oxigenio Festival] CPM 22 no Campo de Marte :brazil: [Ingressos](https://pixelticket.com.br/eventos/10147/dia-20-11-oxigenio-festival-2022/ingressos)  
 __20/11__ - [Oxigenio Festival] HELMET no Campo de Marte :brazil:  
 __03/12__ - Lucifer no Fabrique Club :brazil: [Ingresso](https://www.bilheto.com.br/evento/910/Lucifer?fbclid=IwAR2_lpqYu-1gPyV_KDXhfdY-MG0X4LfZ86Ka0tyXGcTNWh3DO7dFaEl-iF0)  
 __04/12__ - Watain no Fabrique :brazil: [Ingressos](https://www.clubedoingresso.com/evento/watain-sp)  
 __05/12__ - Animals as Leaders no Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/animalsasleaders-sp)  
+__09/12__ - Belle and Sebastian na Audio Club :brazil: [Ingressos](https://www.eventim.com.br/artist/belleandsebastian/belle-and-sebastian-3196315/)  
 __10/12__ - Discharge no Fabrique :brazil: [Ingressos](https://www.clubedoingresso.com/evento/discharge-sp)  
 __11/12__ - Hypocrisy na Audio :brazil: [Ingressos](https://www.ticket360.com.br/evento/25951/ingressos-para-samael-e-hipocrisy-worship-tour-2022)  
 __11/12__ - Samael na Audio :brazil:  
