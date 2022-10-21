@@ -240,5 +240,6 @@ __15/12__ - Judas Priest no Vibra :brazil: [Ingressos](https://www.eventim.com.b
 __15/12__ - Pantera no Vibra :brazil:  
 
 ## 2023  
+__21/02__ - Swallow the Sun no Hangar 110 :brazil: (AGUARDANDO VENDA)  
 __25/03__ - Katatonia no Carioca Club :brazil:  
 __02/04__ - Alcest no Carioca Club :brazil:  [Ingressos](https://www.clubedoingresso.com/evento/alcest-sp)  
