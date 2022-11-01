@@ -240,6 +240,7 @@ __11/12__ - Hypocrisy na Audio :brazil: [Ingressos](https://www.ticket360.com.br
 __11/12__ - Samael na Audio :brazil:  
 __15/12__ - Judas Priest no Vibra :brazil: [Ingressos](https://www.eventim.com.br/event/judas-priest-pantera-vibra-sao-paulo-15973986/)  
 __15/12__ - Pantera no Vibra :brazil:  
+__28/12__ - The Ocean Collective no Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/theocean-sp)  
 
 ## 2023  
 __21/02__ - Swallow the Sun no Hangar 110 :brazil: [Ingressos](https://www.bilheto.com.br/evento/1063/Swallow_The_Sun_em_So_Paulo)  
