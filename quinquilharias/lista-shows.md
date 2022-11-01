@@ -212,9 +212,7 @@ __04/09__ - [Setembro Negro] Inter Arma no Carioca Club :brazil:
 __04/09__ - [Setembro Negro] Skeletal Remains no Carioca Club :brazil:  
 __04/09__ - [Setembro Negro] Mork no Carioca Club :brazil:  
 __04/09__ - [Setembro Negro] Tribulation no Carioca Club :brazil:  
-__06/07__ - EvilCulture no Associação Cultural Cecilia :brazil:  
 __06/07__ - Falsa Luz no Associação Cultural Cecilia :brazil:  
-__06/07__ - Dente Canino no Associação Cultural Cecilia :brazil:  
 __06/07__ - Fossilization no Associação Cultural Cecilia :brazil:  
 __07/09__ - Suffocation no Fabrique Club :brazil:  
 __07/09__ - Incantation no Fabrique Club :brazil:  
