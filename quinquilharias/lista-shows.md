@@ -219,15 +219,12 @@ __07/09__ - Incantation no Fabrique Club :brazil:
 __24/09__ - Obituary na Fabrique Club :brazil:  
 __17/10__ - Orochi no Rap in-Cena :brazil:  
 __17/10__ - Racionais MCs no Rap in-Cena :brazil:  
+__10/11__ - [Open the Road Festival VIII] Flagelador no Carioca Club :brazil:  
+__10/11__ - [Open the Road Festival VIII] Omen no Carioca Club :brazil:  
+__10/11__ - [Open the Road Festival VIII] Mayhem no Carioca Club :brazil:   
 
 ### upcoming  
-__08/11__ - Father John Misty no Cine Jóia :brazil: [Ingressos](https://www.eventim.com.br/fatherjohnmisty)  
-__10/11__ - [Open the Road Festival VIII] Vazio no Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/opentheroadfestival8)  
-__10/11__ - [Open the Road Festival VIII] Mayhem no Carioca Club :brazil:   
-__12/11__ - Shame no Fabrique Club :brazil: [Ingressos](https://www.ingresse.com/shame?utm_source=internal&utm_medium=Meus%20ingressos)  
 __19/11__ - I am Morbid no Fabrique Club :brazil: [Ingressos](https://pixelticket.com.br/eventos/9382/i-am-morbid-no-fabrique)  
-__20/11__ - [Oxigenio Festival] CPM 22 no Campo de Marte :brazil: [Ingressos](https://pixelticket.com.br/eventos/10147/dia-20-11-oxigenio-festival-2022/ingressos)  
-__20/11__ - [Oxigenio Festival] HELMET no Campo de Marte :brazil:  
 __30/11__ - Gaerea no Legends Music & Bar. :brazil:  
 __03/12__ - Lucifer no Fabrique Club :brazil: [Ingresso](https://www.bilheto.com.br/evento/910/Lucifer?fbclid=IwAR2_lpqYu-1gPyV_KDXhfdY-MG0X4LfZ86Ka0tyXGcTNWh3DO7dFaEl-iF0)  
 __04/12__ - Watain no Fabrique :brazil: [Ingressos](https://www.clubedoingresso.com/evento/watain-sp)  
