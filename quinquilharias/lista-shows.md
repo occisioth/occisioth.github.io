@@ -227,7 +227,8 @@ __10/11__ - [Open the Road Festival VIII] Mayhem no Carioca Club :brazil:
 __19/11__ - I am Morbid no Fabrique Club :brazil: [Ingressos](https://pixelticket.com.br/eventos/9382/i-am-morbid-no-fabrique)  
 __30/11__ - Gaerea no Legends Music & Bar. :brazil:  
 __03/12__ - Lucifer no Fabrique Club :brazil: [Ingresso](https://www.bilheto.com.br/evento/910/Lucifer?fbclid=IwAR2_lpqYu-1gPyV_KDXhfdY-MG0X4LfZ86Ka0tyXGcTNWh3DO7dFaEl-iF0)  
-__04/12__ - Watain no Fabrique :brazil: [Ingressos](https://www.clubedoingresso.com/evento/watain-sp)  
+__04/12__ - Plebe Rude no Tokio Marine Hall :brazil:  
+__04/12__ - Titãs no Tokio Marine Hall :brazil:  
 __05/12__ - Animals as Leaders no Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/animalsasleaders-sp)  
 __09/12__ - Belle and Sebastian na Audio Club :brazil: [Ingressos](https://www.eventim.com.br/artist/belleandsebastian/belle-and-sebastian-3196315/)  
 __10/12__ - Discharge no Fabrique :brazil: [Ingressos](https://www.clubedoingresso.com/evento/discharge-sp)  
@@ -241,3 +242,4 @@ __28/12__ - The Ocean Collective no Carioca Club :brazil: [Ingressos](https://ww
 __21/02__ - Swallow the Sun no Hangar 110 :brazil: [Ingressos](https://www.bilheto.com.br/evento/1063/Swallow_The_Sun_em_So_Paulo)  
 __25/03__ - Katatonia no Carioca Club :brazil:  
 __02/04__ - Alcest no Carioca Club :brazil:  [Ingressos](https://www.clubedoingresso.com/evento/alcest-sp)  
+__17/06__ - Titãs no Allianz Park :brazil:  [Ingressos - 22/11]()  
