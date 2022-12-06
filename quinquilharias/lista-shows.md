@@ -217,17 +217,19 @@ __06/07__ - Fossilization no Associação Cultural Cecilia :brazil:
 __07/09__ - Suffocation no Fabrique Club :brazil:  
 __07/09__ - Incantation no Fabrique Club :brazil:  
 __24/09__ - Obituary na Fabrique Club :brazil:  
+__09/10__ - Paula Lima na Oktoberfest São Paulo :brazil:  
+__09/10__ - Zélia Duncan na Oktoberfest São Paulo :brazil:  
 __17/10__ - Orochi no Rap in-Cena :brazil:  
 __17/10__ - Racionais MCs no Rap in-Cena :brazil:  
 __10/11__ - [Open the Road Festival VIII] Flagelador no Carioca Club :brazil:  
 __10/11__ - [Open the Road Festival VIII] Omen no Carioca Club :brazil:  
 __10/11__ - [Open the Road Festival VIII] Mayhem no Carioca Club :brazil:   
-
-### upcoming  
 __30/11__ - Gaerea no Legends Music & Bar. :brazil:  
-__03/12__ - Lucifer no Fabrique Club :brazil: [Ingresso](https://www.bilheto.com.br/evento/910/Lucifer?fbclid=IwAR2_lpqYu-1gPyV_KDXhfdY-MG0X4LfZ86Ka0tyXGcTNWh3DO7dFaEl-iF0)  
 __04/12__ - Plebe Rude no Tokio Marine Hall :brazil:  
 __04/12__ - Titãs no Tokio Marine Hall :brazil:  
+
+
+### upcoming  
 __11/12__ - Hypocrisy na Audio :brazil: [Ingressos](https://www.ticket360.com.br/evento/25951/ingressos-para-samael-e-hipocrisy-worship-tour-2022)  
 __11/12__ - Samael na Audio :brazil:  
 __15/12__ - Judas Priest no Vibra :brazil: [Ingressos](https://www.eventim.com.br/event/judas-priest-pantera-vibra-sao-paulo-15973986/)  
