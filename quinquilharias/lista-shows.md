@@ -232,7 +232,7 @@ __04/12__ - Titãs no Tokio Marine Hall :brazil:
 ### upcoming  
 __11/12__ - Hypocrisy na Audio :brazil:  
 __11/12__ - Samael na Audio :brazil:  
-__15/12__ - Judas Priest no Vibra :brazil: [Ingressos](https://www.eventim.com.br/event/judas-priest-pantera-vibra-sao-paulo-15973986/)  
+__15/12__ - Judas Priest no Vibra :brazil:  
 __15/12__ - Pantera no Vibra :brazil:  
 __28/12__ - The Ocean Collective no Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/theocean-sp)  
 
