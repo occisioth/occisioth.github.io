@@ -230,10 +230,7 @@ __04/12__ - Titãs no Tokio Marine Hall :brazil:
 
 
 ### upcoming  
-__09/12__ - Desalmado no Boraxteria :brazil:  
-__09/12__ - Mange Cadavre no Boraxteria :brazil:  
-__09/12__ - Blackning no Boraxteria :brazil:  
-__11/12__ - Hypocrisy na Audio :brazil: [Ingressos](https://www.ticket360.com.br/evento/25951/ingressos-para-samael-e-hipocrisy-worship-tour-2022)  
+__11/12__ - Hypocrisy na Audio :brazil:  
 __11/12__ - Samael na Audio :brazil:  
 __15/12__ - Judas Priest no Vibra :brazil: [Ingressos](https://www.eventim.com.br/event/judas-priest-pantera-vibra-sao-paulo-15973986/)  
 __15/12__ - Pantera no Vibra :brazil:  
