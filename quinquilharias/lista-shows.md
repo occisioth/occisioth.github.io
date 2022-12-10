@@ -238,6 +238,7 @@ __28/12__ - The Ocean Collective no Carioca Club :brazil: [Ingressos](https://ww
 
 ## 2023  
 __21/02__ - Swallow the Sun no Hangar 110 :brazil: [Ingressos](https://www.bilheto.com.br/evento/1063/Swallow_The_Sun_em_So_Paulo)  
+__12/03__ - Deafheaven na Fabrique :brazil: [Ingressos](https://pixelticket.com.br/eventos/11670/deafheaven-em-sao-paulo)  
 __25/03__ - Katatonia no Carioca Club :brazil:  
 __02/04__ - Alcest no Carioca Club :brazil:  [Ingressos](https://www.clubedoingresso.com/evento/alcest-sp)  
 __25/05__ - Snarky Puppy na Audio :brazil: [Ingressos](https://www.ticket360.com.br/evento/26133/ingressos-para-snarky-puppy)  
