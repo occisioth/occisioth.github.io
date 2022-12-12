@@ -227,11 +227,11 @@ __10/11__ - [Open the Road Festival VIII] Mayhem no Carioca Club :brazil:
 __30/11__ - Gaerea no Legends Music & Bar. :brazil:  
 __04/12__ - Plebe Rude no Tokio Marine Hall :brazil:  
 __04/12__ - Titãs no Tokio Marine Hall :brazil:  
+__11/12__ - Hypocrisy na Audio :brazil:  
+__11/12__ - Samael na Audio :brazil:  
 
 
 ### upcoming  
-__11/12__ - Hypocrisy na Audio :brazil:  
-__11/12__ - Samael na Audio :brazil:  
 __15/12__ - Judas Priest no Vibra :brazil:  
 __15/12__ - Pantera no Vibra :brazil:  
 __28/12__ - The Ocean Collective no Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/theocean-sp)  
