@@ -235,7 +235,7 @@ __15/12__ - Pantera no Vibra :brazil:
 
 ### upcoming  
 ## 2023  
-__08/02__ - Opeth no Terra SP :brazil: [Ingressos]()
+__08/02__ - Opeth no Terra SP :brazil: [Ingressos](https://www.clubedoingresso.com/evento/opeth)  
 __21/02__ - Swallow the Sun no Hangar 110 :brazil: [Ingressos](https://www.bilheto.com.br/evento/1063/Swallow_The_Sun_em_So_Paulo)  
 __12/03__ - Deafheaven na Fabrique :brazil: [Ingressos](https://pixelticket.com.br/eventos/11670/deafheaven-em-sao-paulo)  
 __25/03__ - Katatonia no Carioca Club :brazil:  
