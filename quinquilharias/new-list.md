@@ -9,7 +9,11 @@ Year   |Date       |Event |Band               | Country      | Local
 -|07/11|Maquinaria Festival|Faith no More|:us:| Chácara do Jockey
 -|07/11|Maquinaria Festival|Sepultura| :brazil:| Chácara do Jockey
 -|07/11|Maquinaria Festival|Deftones| :us:| Chácara do Jockey 
--|07/11|Maquinaria Festival|Jane's Addiction| :us:| Chácara do Jockey
+-|07/11|Maquinaria Festival|Jane's Addiction| :us:| Chácara do Jockey. 
+
+## 2010  
+Year   |Date       |Event |Band               | Country      | Local   
+---    |---        | ---  | ---               | ---          | ---
 2010|24/04|-|Megadeth|:us:|Credicard Hall  
 -|15/05|KoolMetal Fest| Napalm Death|:uk:|Espaço Victory  
 -|15/05|KoolMetal Fest| Suffocation|:us:|Espaço Victory  
@@ -18,10 +22,22 @@ Year   |Date       |Event |Band               | Country      | Local
 -|15/05|KoolMetal Fest| Western Days|:brazil:|Espaço Victory  
 -|16/11|-|Massive Attack|:uk:|HSBC Hall  
 -|16/11|-|Martina Topley-Bird|:uk:|HSBC Hall  
-2011|02/07|-|UDR|:brazil:|Inferno Club
+
+## 2011  
+Year   |Date       |Event |Band               | Country      | Local   
+---    |---        | ---  | ---               | ---          | ---
+2011|02/07|-|UDR|:brazil:|Inferno Club  
+
+## 2012  
+Year   |Date       |Event |Band               | Country      | Local   
+---    |---        | ---  | ---               | ---          | ---
 2012|11/03|-|Morrissey|:uk:|Espaço das Américas
 -|11/03|-|Kirsteen Young|:us:|Espaço das Américas
--|07/04|Lollapalooza|Foo Fighters|:us:|Jockey Clube
+-|07/04|Lollapalooza|Foo Fighters|:us:|Jockey Clube  
+
+## 2013  
+Year   |Date       |Event |Band               | Country      | Local   
+---    |---        | ---  | ---               | ---          | ---
 2013|29/03|Lollapalooza|Of Monsters and Men|:iceland:|Jockey Clube
 -|29/03|Lollapalooza|Crystal Castles|:canada:|Jockey Clube
 -|29/03|Lollapalooza|Flaming Lips|:us:|Jockey Clube
@@ -48,6 +64,10 @@ Year   |Date       |Event |Band               | Country      | Local
 -|13/10|-|Anathema|:uk:|Carioca Club   
 -|16/11|-|Meshuggah|:sweden:|Carioca Club   
 -|20/11|-|CocoRosie|:us:| Cine Jóia  
+
+## 2014  
+Year   |Date       |Event |Band               | Country      | Local   
+---    |---        | ---  | ---               | ---          | ---
 2014|24/01|-|EMICIDA|:brazil:|Cine Joia 
 -|24/01|-|Don L|:brazil:|Cine Joia  
 -|21/04|-|Torture Squad|:brazil:|Carioca Club   
@@ -56,6 +76,10 @@ Year   |Date       |Event |Band               | Country      | Local
 -|24/05|-|Andy McKee|:us:|Bourbon Street  
 -|03/08|Converse Rubber Tracks|The Swords|:us:|Cine Jóia  
 -|03/08|Converse Rubber Tracks|Clutch|:us:|Cine Jóia 
+
+## 2015  
+Year   |Date       |Event |Band               | Country      | Local   
+---    |---        | ---  | ---               | ---          | ---
 2015|07/03|-|Saturndust|:brazil:|Dissenso Lounge  
 -|07/03|-|Huey|:brazil:|Dissenso Lounge  
 -|07/03|-|E A Terra Nunca Me Pareceu Tão Distante|:brazil:|Dissenso Lounge  
