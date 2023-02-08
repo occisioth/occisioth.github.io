@@ -4,59 +4,59 @@
 
 Year   |Date       |Event |Band               | Country      | Local   
 ---    |---        | ---  | ---               | ---          | ---
-2009|19/03|-|Elma|::brazil:azil:| MDC Lab
--|15/05|-|Heaven and Hell|:england:|Credicard Hall
--|07/11|Maquinaria Festival|Faith no More|US| Chácara do Jockey
+2009|19/03|-|Elma|::brazil:| MDC Lab
+-|15/05|-|Heaven and Hell|:uk:|Credicard Hall
+-|07/11|Maquinaria Festival|Faith no More|:us:| Chácara do Jockey
 -|07/11|Maquinaria Festival|Sepultura| :brazil:| Chácara do Jockey
--|07/11|Maquinaria Festival|Deftones| US| Chácara do Jockey 
--|07/11|Maquinaria Festival|Jane's Addiction| US| Chácara do Jockey
-2010|24/04|-|Megadeth|US|Credicard Hall  
--|15/05|KoolMetal Fest| Napalm Death|UK|Espaço Victory  
--|15/05|KoolMetal Fest| Suffocation|US|Espaço Victory  
+-|07/11|Maquinaria Festival|Deftones| :us:| Chácara do Jockey 
+-|07/11|Maquinaria Festival|Jane's Addiction| :us:| Chácara do Jockey
+2010|24/04|-|Megadeth|:us:|Credicard Hall  
+-|15/05|KoolMetal Fest| Napalm Death|:uk:|Espaço Victory  
+-|15/05|KoolMetal Fest| Suffocation|:us:|Espaço Victory  
 -|15/05|KoolMetal Fest| Violator|:brazil:|Espaço Victory  
 -|15/05|KoolMetal Fest| D.E.R|:brazil:|Espaço Victory  
 -|15/05|KoolMetal Fest| Western Days|:brazil:|Espaço Victory  
--|16/11|-|Massive Attack|UK|HSBC Hall  
--|16/11|-|Martina Topley-Bird|UK|HSBC Hall  
+-|16/11|-|Massive Attack|:uk:|HSBC Hall  
+-|16/11|-|Martina Topley-Bird|:uk:|HSBC Hall  
 2011|02/07|-|UDR|:brazil:|Inferno Club
-2012|11/03|-|Morrissey|UK|Espaço das Américas
--|11/03|-|Kirsteen Young|US|Espaço das Américas
--|07/04|Lollapalooza|Foo Fighters|US|Jockey Clube
-2013|29/03|Lollapalooza|Of Monsters and Men||Jockey Clube
+2012|11/03|-|Morrissey|:uk:|Espaço das Américas
+-|11/03|-|Kirsteen Young|:us:|Espaço das Américas
+-|07/04|Lollapalooza|Foo Fighters|:us:|Jockey Clube
+2013|29/03|Lollapalooza|Of Monsters and Men|:iceland:|Jockey Clube
 -|29/03|Lollapalooza|Crystal Castles||Jockey Clube
--|29/03|Lollapalooza|Flaming Lips||Jockey Clube
--|29/03|Lollapalooza|Deadmau5||Jockey Clube
--|29/03|Lollapalooza|Knife Party||Jockey Clube
--|30/03|Lollapalooza|Tomahawk||Jockey Clube
--|30/03|Lollapalooza|Queens of The Stone Age||Jockey Clube
--|30/03|Lollapalooza|A Perfect Circle||Jockey Clube
--|30/03|Lollapalooza|The Black Keys||Jockey Clube
--|31/03|Lollapalooza|Puscifer||Jockey Clube
--|31/03|Lollapalooza|Kaiser Chiefs||Jockey Clube
--|31/03|Lollapalooza|The Hives||Jockey Clube
--|31/03|Lollapalooza|Pearl Jam||Jockey Clube
--|10/04|-|DOWN|US|Carioca Club
--|11/04|-|Carcass|UK|Carioca Club
--|04/08|Extreme Hate Festival|Vader|| Carioca Club
--|04/08|Extreme Hate Festival|Suffocation|| Carioca Club
--|04/08|Extreme Hate Festival|Marduk|| Carioca Club
--|20/09|Live Music Rocks|Ghost B.C.||Arena Anhembi
--|20/09|Live Music Rocks|Slayer|US|Arena Anhembi
--|20/09|Live Music Rocks|Iron Maiden|UK|Arena Anhembi
--|11/10|-|Black Sabbath||Campo de Marte   
--|11/10|-|Megadeth [2x]||Campo de Marte  
--|13/10|-|Anathema||Carioca Club   
--|16/11|-|Meshuggah||Carioca Club   
--|20/11|-|CocoRosie|| Cine Jóia  
+-|29/03|Lollapalooza|Flaming Lips|:canada:|Jockey Clube
+-|29/03|Lollapalooza|Deadmau5|:canada:|Jockey Clube
+-|29/03|Lollapalooza|Knife Party|:australia:|Jockey Clube
+-|30/03|Lollapalooza|Tomahawk|:us:|Jockey Clube
+-|30/03|Lollapalooza|Queens of The Stone Age|:us:|Jockey Clube
+-|30/03|Lollapalooza|A Perfect Circle|:us:|Jockey Clube
+-|30/03|Lollapalooza|The Black Keys|:us:|Jockey Clube
+-|31/03|Lollapalooza|Puscifer|:us:|Jockey Clube
+-|31/03|Lollapalooza|Kaiser Chiefs|:uk:|Jockey Clube
+-|31/03|Lollapalooza|The Hives|:italy:|Jockey Clube
+-|31/03|Lollapalooza|Pearl Jam|:us:|Jockey Clube
+-|10/04|-|DOWN|:us:|Carioca Club
+-|11/04|-|Carcass|:uk:|Carioca Club
+-|04/08|Extreme Hate Festival|Vader|:poland:| Carioca Club
+-|04/08|Extreme Hate Festival|Suffocation|:us:| Carioca Club
+-|04/08|Extreme Hate Festival|Marduk|:sweden:| Carioca Club
+-|20/09|Live Music Rocks|Ghost B.C.|:sweden:|Arena Anhembi
+-|20/09|Live Music Rocks|Slayer|:us:|Arena Anhembi
+-|20/09|Live Music Rocks|Iron Maiden|:uk:|Arena Anhembi
+-|11/10|-|Black Sabbath|:uk:|Campo de Marte   
+-|11/10|-|Megadeth [2x]|:us:|Campo de Marte  
+-|13/10|-|Anathema|:uk:|Carioca Club   
+-|16/11|-|Meshuggah|:sweden:|Carioca Club   
+-|20/11|-|CocoRosie|:us:| Cine Jóia  
 2014|24/01|-|EMICIDA|:brazil:|Cine Joia 
 -|24/01|-|Don L|:brazil:|Cine Joia  
 -|21/04|-|Torture Squad|:brazil:|Carioca Club   
--|21/04|-|Hypocrisy||Carioca Club  
--|18/05|-|Rotting Christ|GR|Hangar 110  
--|24/05|-|Andy McKee||Bourbon Street  
--|03/08|Converse Rubber Tracks|The Swords||Cine Jóia  
--|03/08|Converse Rubber Tracks|Clutch||Cine Jóia 
-2015|07/03|-|Saturndust|:brazil:|Dissenso Lounge  
+-|21/04|-|Hypocrisy|:sweden:|Carioca Club  
+-|18/05|-|Rotting Christ|:greece:|Hangar 110  
+-|24/05|-|Andy McKee|:us:|Bourbon Street  
+-|03/08|Converse Rubber Tracks|The Swords|:us:|Cine Jóia  
+-|03/08|Converse Rubber Tracks|Clutch|:us:|Cine Jóia 
+2015|07/03|-|Saturnd:us:t|:brazil:|Dissenso Lounge  
 -|07/03|-|Huey|:brazil:|Dissenso Lounge  
 -|07/03|-|E A Terra Nunca Me Pareceu Tão Distante|:brazil:|Dissenso Lounge  
 -|04/04|-|Jupiterian|:brazil:|Morfeus Club  
@@ -67,16 +67,16 @@ Year   |Date       |Event |Band               | Country      | Local
 -|10/04|-|Herod|:brazil:|Serralheria  
 -|09/05|-|E A Terra Nunca Me Pareceu Tão Distante [2x]|:brazil:|Casa do Mancha  
 -|14/05|-|Jair Naves canta Patti Smith|:brazil:|SESC Vila Mariana  
--|30/05|-|Mark Lanegan||Cine Jóia  
--|31/05|-|Mars Red Sky|FR|Inferno Club  
--|31/05|-|Saturndust [2x]|:brazil:|Inferno Club  
+-|30/05|-|Mark Lanegan|:us:|Cine Jóia  
+-|31/05|-|Mars Red Sky|:france:|Inferno Club  
+-|31/05|-|Saturnd:us:t [2x]|:brazil:|Inferno Club  
 -|31/05|-|Hammerhead Blues|:brazil:|Inferno Club  
 -|31/05|-|Hierofante|:brazil:|Inferno Club  
--|24/09|-|Faith no More [2x]|US|Espaço das Americas  
--|26/09|-|Lee Ranaldo||Largo da Batata  
+-|24/09|-|Faith no More [2x]|:us:|Espaço das Americas  
+-|26/09|-|Lee Ranaldo|:us:|Largo da Batata  
 -|26/09|-|Cidadão Instigado|:brazil:|Largo da Batata  
 -|27/09|-|Huey [2x]|:brazil:|CCSP 
--|30/09|-|Steve Shelley||ACSC 
+-|30/09|-|Steve Shelley|:us:|ACSC 
 -|13/10|-|Huey [3x]|:brazil:|Alameda Rio Claro  
 -|25/10|-|Boogarins|:brazil:|Mirante 9 de Julho  
 -|31/10|-|Noala|:brazil:|Dissenso Studio  
