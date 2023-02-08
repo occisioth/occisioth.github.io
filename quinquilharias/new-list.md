@@ -4,7 +4,7 @@
 
 Year   |Date       |Event |Band               | Country      | Local   
 ---    |---        | ---  | ---               | ---          | ---
-2009|19/03|-|Elma|::brazil:| MDC Lab
+2009|19/03|-|Elma|:brazil:| MDC Lab
 -|15/05|-|Heaven and Hell|:uk:|Credicard Hall
 -|07/11|Maquinaria Festival|Faith no More|:us:| Chácara do Jockey
 -|07/11|Maquinaria Festival|Sepultura| :brazil:| Chácara do Jockey
@@ -23,8 +23,8 @@ Year   |Date       |Event |Band               | Country      | Local
 -|11/03|-|Kirsteen Young|:us:|Espaço das Américas
 -|07/04|Lollapalooza|Foo Fighters|:us:|Jockey Clube
 2013|29/03|Lollapalooza|Of Monsters and Men|:iceland:|Jockey Clube
--|29/03|Lollapalooza|Crystal Castles||Jockey Clube
--|29/03|Lollapalooza|Flaming Lips|:canada:|Jockey Clube
+-|29/03|Lollapalooza|Crystal Castles|:canada:|Jockey Clube
+-|29/03|Lollapalooza|Flaming Lips|:us:|Jockey Clube
 -|29/03|Lollapalooza|Deadmau5|:canada:|Jockey Clube
 -|29/03|Lollapalooza|Knife Party|:australia:|Jockey Clube
 -|30/03|Lollapalooza|Tomahawk|:us:|Jockey Clube
@@ -33,7 +33,7 @@ Year   |Date       |Event |Band               | Country      | Local
 -|30/03|Lollapalooza|The Black Keys|:us:|Jockey Clube
 -|31/03|Lollapalooza|Puscifer|:us:|Jockey Clube
 -|31/03|Lollapalooza|Kaiser Chiefs|:uk:|Jockey Clube
--|31/03|Lollapalooza|The Hives|:italy:|Jockey Clube
+-|31/03|Lollapalooza|The Hives|:it:|Jockey Clube
 -|31/03|Lollapalooza|Pearl Jam|:us:|Jockey Clube
 -|10/04|-|DOWN|:us:|Carioca Club
 -|11/04|-|Carcass|:uk:|Carioca Club
@@ -56,7 +56,7 @@ Year   |Date       |Event |Band               | Country      | Local
 -|24/05|-|Andy McKee|:us:|Bourbon Street  
 -|03/08|Converse Rubber Tracks|The Swords|:us:|Cine Jóia  
 -|03/08|Converse Rubber Tracks|Clutch|:us:|Cine Jóia 
-2015|07/03|-|Saturnd:us:t|:brazil:|Dissenso Lounge  
+2015|07/03|-|Saturndust|:brazil:|Dissenso Lounge  
 -|07/03|-|Huey|:brazil:|Dissenso Lounge  
 -|07/03|-|E A Terra Nunca Me Pareceu Tão Distante|:brazil:|Dissenso Lounge  
 -|04/04|-|Jupiterian|:brazil:|Morfeus Club  
@@ -68,8 +68,8 @@ Year   |Date       |Event |Band               | Country      | Local
 -|09/05|-|E A Terra Nunca Me Pareceu Tão Distante [2x]|:brazil:|Casa do Mancha  
 -|14/05|-|Jair Naves canta Patti Smith|:brazil:|SESC Vila Mariana  
 -|30/05|-|Mark Lanegan|:us:|Cine Jóia  
--|31/05|-|Mars Red Sky|:france:|Inferno Club  
--|31/05|-|Saturnd:us:t [2x]|:brazil:|Inferno Club  
+-|31/05|-|Mars Red Sky|:fr:|Inferno Club  
+-|31/05|-|Saturndust [2x]|:brazil:|Inferno Club  
 -|31/05|-|Hammerhead Blues|:brazil:|Inferno Club  
 -|31/05|-|Hierofante|:brazil:|Inferno Club  
 -|24/09|-|Faith no More [2x]|:us:|Espaço das Americas  
