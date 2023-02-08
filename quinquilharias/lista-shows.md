@@ -241,7 +241,7 @@ __24/03__ - Monstrosity no Hangar 110 :brazil: [Ingressos](https://pixelticket.c
 __25/03__ - Katatonia no Carioca Club :brazil:  
 __02/04__ - Wu-Tang Clan no Arena Open Air :brazil:  
 __14/04__ - Moonspell :brazil:  
-__13/05__ - Deicide no Fabrique Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/deicide-kataklysm-sp)  
+__13/05__ - Deicide no Fabrique Club :brazil:  
 __13/05__ - Kataklysm no Fabrique Club :brazil:     
 __25/05__ - Snarky Puppy na Audio :brazil: [Ingressos](https://www.ticket360.com.br/evento/26133/ingressos-para-snarky-puppy)  
 __04/06__ - [MITA] The Mars Volta no Novo Anhangabaú :brazil:  
