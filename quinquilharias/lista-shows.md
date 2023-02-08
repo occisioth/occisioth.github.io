@@ -240,7 +240,8 @@ __12/03__ - Deafheaven na Fabrique :brazil: [Ingressos](https://pixelticket.com.
 __24/03__ - Monstrosity no Hangar 110 :brazil: [Ingressos](https://pixelticket.com.br/eventos/12041/monstrosity)  
 __25/03__ - Katatonia no Carioca Club :brazil:  
 __02/04__ - Wu-Tang Clan no Arena Open Air :brazil:  
-__14/04__ - Moonspell :brazil:  
+__14/04__ - Moonspell no Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/saopaulometalfest)  
+__14/04__ - Cynic no Carioca Club :brazil:  
 __13/05__ - Deicide no Fabrique Club :brazil:  
 __13/05__ - Kataklysm no Fabrique Club :brazil:     
 __25/05__ - Snarky Puppy na Audio :brazil: [Ingressos](https://www.ticket360.com.br/evento/26133/ingressos-para-snarky-puppy)  
