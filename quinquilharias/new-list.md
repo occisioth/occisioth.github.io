@@ -112,3 +112,25 @@ Year   |Date       |Event |Band               | Country      | Local
 -|04/12|-|Elza Soares|:brazil:|SESC Pompéia  
 -|05/12|-|Ruido/mm|:brazil:|Casa do Mancha  
 -|05/12|-|Mais Valia|:brazil:|Casa do Mancha 
+
+## 2016
+
+Year   |Date       |Event |Band               | Country      | Local   
+---    |---        | ---  | ---               | ---          | ---
+2016|26/03|-|Jupiterian|:brazil:| Estudio Som
+-|26/03|-|Mythological Cold Towers|:brazil:| Estudio Som
+-|09/07|-|Magnetita|:brazil:| Zapata
+-|09/07|-|Umbilichaos|:brazil:| Zapata
+-|09/07|-|Crushing Darkness|:brazil:| Zapata
+-|10/07|-|Nvblado|:brazil:| Zapata
+-|10/07|-|E a terra Nunca me Pareceu Tão Distante [3x]|:brazil:| Zapata
+-|10/07|-|Deafheaven|:us:| Zapata
+-|04/09|[Overload Music Festival]|Katatonia|:sweden:| no Carioca Club 
+-|04/09|[Overload Music Festival]|Alcest|:fr:| no Carioca Club 
+-|04/09|[Overload Music Festival]|Labirinto|:brazil:| no Carioca Club 
+-|04/09|[Overload Music Festival]|Vincent Cavanagh|:uk:| no Carioca Club 
+-|07/09|[Maximus Festival]| Disturbed|:us:|Autódromo de Interlagos 
+-|07/09|[Maximus Festival]| Marilyn Manson|:us:|Autódromo de Interlagos 
+-|07/09|[Maximus Festival]| Rammstein|:de:| Autódromo de Interlagos 
+-|11/09|-|Lee Ranaldo [2x]|:uk:| SESC Belenzinho 
+-|27/11|-|Adrian Belew Powertrio|:uk:|Carioca Club
