@@ -132,5 +132,23 @@ Year   |Date       |Event |Band               | Country      | Local
 -|07/09|[Maximus Festival]| Disturbed|:us:|Autódromo de Interlagos 
 -|07/09|[Maximus Festival]| Marilyn Manson|:us:|Autódromo de Interlagos 
 -|07/09|[Maximus Festival]| Rammstein|:de:| Autódromo de Interlagos 
--|11/09|-|Lee Ranaldo [2x]|:uk:| SESC Belenzinho 
+-|11/09|-|Lee Ranaldo [2x]|:us:| SESC Belenzinho 
 -|27/11|-|Adrian Belew Powertrio|:uk:|Carioca Club
+
+## 2017
+
+Year   |Date       |Event |Band               | Country      | Local   
+---    |---        | ---  | ---               | ---          | ---
+2017|30/04|-| National|:brazil:| Dissenso Lounge 
+-|30/04|-|Labirinto [2x]|:brazil:| Dissenso Lounge 
+-|06/05|-|Ruído/mm [2x]|:brazil:| CCSP 
+-|27/06|[Dia da Música] |Ralo |:brazil:|Largo da Batata 
+-|27/06|[Dia da Música] |Jupiterian [3x]|:brazil:| Largo da Batata 
+-|16/07|-|Ventre|:brazil:| CCSP 
+-|16/07|-|E A Terra Nunca Me Pareceu Tão Distante [4x]|:brazil:| CCSP 
+-|12/08|-|Anathema [2x]|:uk:| Carioca Club 
+-|12/09|-|Devendra Banhart|:us:| Tropical Butantã 
+-|08/10|-|E A Terra Nunca Me Pareceu Tão Distante [5x]|:brazil:| Casa das Caldeiras 
+-|08/10|-|Mais Valia|:brazil:| Casa das Caldeiras 
+-|08/10|-|Ema Stoned|:brazil:| Casa das Caldeiras 
+-|14/12|-|Satanique Samba Trio|:brazil:| CCSP 
