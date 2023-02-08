@@ -246,7 +246,7 @@ __13/05__ - Deicide no Fabrique Club :brazil:
 __13/05__ - Kataklysm no Fabrique Club :brazil:     
 __25/05__ - Snarky Puppy na Audio :brazil: [Ingressos](https://www.ticket360.com.br/evento/26133/ingressos-para-snarky-puppy)  
 __04/06__ - [MITA] The Mars Volta no Novo Anhangabaú :brazil:  
-__17/06__ - Titãs no Allianz Park :brazil: 
+__17/06__ - Titãs no Allianz Park :brazil:  
 __18/06__ - Nile no Jai Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/nile-jaiclub)  
 __21/10__ - Amenra no Fabrique Club :brazil: [Ingressos](https://www.bilheto.com.br/evento/1214/AMENRA__HEXIS)  
 __21/10__ - HEXIS no Fabrique Club :brazil:  
