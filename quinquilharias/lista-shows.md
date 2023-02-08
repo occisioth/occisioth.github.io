@@ -235,7 +235,6 @@ __15/12__ - Pantera no Vibra :brazil:
 
 ### upcoming  
 ## 2023  
-__08/02__ - Opeth no Terra SP :brazil: [Ingressos](https://www.clubedoingresso.com/evento/opeth)  
 __21/02__ - Swallow the Sun no Hangar 110 :brazil: [Ingressos](https://www.bilheto.com.br/evento/1063/Swallow_The_Sun_em_So_Paulo)  
 __12/03__ - Deafheaven na Fabrique :brazil: [Ingressos](https://pixelticket.com.br/eventos/11670/deafheaven-em-sao-paulo)  
 __24/03__ - Monstrosity no Hangar 110 :brazil: [Ingressos](https://pixelticket.com.br/eventos/12041/monstrosity)  
@@ -245,5 +244,9 @@ __14/04__ - Moonspell :brazil:
 __13/05__ - Deicide no Fabrique Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/deicide-kataklysm-sp)  
 __13/05__ - Kataklysm no Fabrique Club :brazil:     
 __25/05__ - Snarky Puppy na Audio :brazil: [Ingressos](https://www.ticket360.com.br/evento/26133/ingressos-para-snarky-puppy)  
-__17/06__ - Titãs no Allianz Park :brazil:  
+__04/06__ - [MITA] The Mars Volta no Novo Anhangabaú :brazil:  
+__17/06__ - Titãs no Allianz Park :brazil: 
+__18/06__ - Nile no Jai Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/nile-jaiclub)  
+__21/10__ - Amenra no Fabrique Club :brazil: [Ingressos](https://www.bilheto.com.br/evento/1214/AMENRA__HEXIS)  
+__21/10__ - HEXIS no Fabrique Club :brazil:  
 
