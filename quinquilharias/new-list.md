@@ -4,8 +4,8 @@
 
 Year   |Date       |Event |Band               | Country      | Local   
 ---    |---        | ---  | ---               | ---          | ---
-2009|19/03|-|Elma|BR| MDC Lab
--|15/05|-|Heaven and Hell|:UK:|Credicard Hall
+2009|19/03|-|Elma|:brazil:| MDC Lab
+-|15/05|-|Heaven and Hell|:england:|Credicard Hall
 -|07/11|Maquinaria Festival|Faith no More|US| Chácara do Jockey
 -|07/11|Maquinaria Festival|Sepultura| BR| Chácara do Jockey
 -|07/11|Maquinaria Festival|Deftones| US| Chácara do Jockey 
