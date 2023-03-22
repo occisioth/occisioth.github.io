@@ -233,27 +233,30 @@ __15/12__ - Judas Priest no Vibra :brazil:
 __15/12__ - Pantera no Vibra :brazil:  
 
 ## 2023  
-__25/02__ - Riffcoven @Fenda315 :brazil:  
-__25/02__ - Papangu @Fenda315 :brazil:  
-__09/03__ - KHNVM @FFFront :brazil:  
-__09/03__ - Infamous Glory @FFFront :brazil:  
+__25/02__ - Riffcoven @ Fenda315 :brazil:  
+__25/02__ - Papangu @ Fenda315 :brazil:  
+__09/03__ - KHNVM @ FFFront :brazil:  
+__09/03__ - Infamous Glory @ FFFront :brazil:  
 
 ### upcoming  
-__24/03__ - Corpse Grind no Hangar 110 :brazil:  
-__24/03__ - Vazio no Hangar 110 :brazil:  
-__24/03__ - Cemitério no Hangar 110 :brazil:  
-__24/03__ - Monstrosity no Hangar 110 :brazil:  
-__25/03__ - Katatonia no Carioca Club :brazil:  
-__08/04__ - Imperial Triumphant @Urban Spree :de:  
-__13/04__ - Wolves in the Throne Room @Lido :de:  
-__13/04__ - Incantation @Lido :de:  
-__13/05__ - Deicide no Fabrique Club :brazil:  
-__13/05__ - Kataklysm no Fabrique Club :brazil:     
-__25/05__ - Snarky Puppy na Audio :brazil: [Ingressos](https://www.ticket360.com.br/evento/26133/ingressos-para-snarky-puppy)  
-__04/06__ - [MITA] Capital Inicial no Novo Anhangabaú :brazil:  
-__04/06__ - [MITA] The Mars Volta no Novo Anhangabaú :brazil:  
-__17/06__ - Titãs no Allianz Park :brazil:  
-__18/06__ - Nile no Jai Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/nile-jaiclub)  
-__21/10__ - Amenra no Fabrique Club :brazil: [Ingressos](https://www.bilheto.com.br/evento/1214/AMENRA__HEXIS)  
-__21/10__ - HEXIS no Fabrique Club :brazil:  
+__24/03__ - Corpse Grind @ Hangar 110 :brazil:  
+__24/03__ - Vazio @ Hangar 110 :brazil:  
+__24/03__ - Cemitério @ Hangar 110 :brazil:  
+__24/03__ - Monstrosity @ Hangar 110 :brazil:  
+__25/03__ - Katatonia @ Carioca Club :brazil:  
+__08/04__ - Imperial Triumphant @ Urban Spree :de:  
+__13/04__ - Wolves in the Throne Room @ Lido :de:  
+__13/04__ - Incantation @ Lido :de:  
+__13/05__ - [Steel meets Bone] Infamous Glory @ Rock Together :brazil:  
+__13/05__ - [Steel meets Bone] Riffcoven @ Rock Together :brazil:  
+__13/05__ - [Steel meets Bone] Finis Hominis @ Rock Together :brazil:  
+__14/05__ - Deicide @ Fabrique Club :brazil:  
+__14/05__ - Kataklysm @ Fabrique Club :brazil:     
+__25/05__ - Snarky Puppy @ Audio :brazil: [Ingressos](https://www.ticket360.com.br/evento/26133/ingressos-para-snarky-puppy)  
+__04/06__ - [MITA] Capital Inicial @ Novo Anhangabaú :brazil:  
+__04/06__ - [MITA] The Mars Volta @ Novo Anhangabaú :brazil:  
+__17/06__ - Titãs @ Allianz Park :brazil:  
+__18/06__ - Nile @ Jai Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/nile-jaiclub)  
+__21/10__ - Amenra @ Fabrique Club :brazil: [Ingressos](https://www.bilheto.com.br/evento/1214/AMENRA__HEXIS)  
+__21/10__ - HEXIS @ Fabrique Club :brazil:  
 
