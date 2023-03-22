@@ -232,16 +232,21 @@ __11/12__ - Samael na Audio :brazil:
 __15/12__ - Judas Priest no Vibra :brazil:  
 __15/12__ - Pantera no Vibra :brazil:  
 
+## 2023  
+__25/02__ - Riffcoven @Fenda315 :brazil:  
+__25/02__ - Papangu @Fenda315 :brazil:  
+__09/03__ - KHNVM @FFFront :brazil:  
+__09/03__ - Infamous Glory @FFFront :brazil:  
 
 ### upcoming  
-## 2023  
-__21/02__ - Swallow the Sun no Hangar 110 :brazil: [Ingressos](https://www.bilheto.com.br/evento/1063/Swallow_The_Sun_em_So_Paulo)  
-__12/03__ - Deafheaven na Fabrique :brazil: [Ingressos](https://pixelticket.com.br/eventos/11670/deafheaven-em-sao-paulo)  
-__24/03__ - Monstrosity no Hangar 110 :brazil: [Ingressos](https://pixelticket.com.br/eventos/12041/monstrosity)  
+__24/03__ - Corpse Grind no Hangar 110 :brazil:  
+__24/03__ - Vazio no Hangar 110 :brazil:  
+__24/03__ - Cemitério no Hangar 110 :brazil:  
+__24/03__ - Monstrosity no Hangar 110 :brazil:  
 __25/03__ - Katatonia no Carioca Club :brazil:  
-__02/04__ - Wu-Tang Clan no Arena Open Air :brazil:  
-__14/04__ - Moonspell no Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/saopaulometalfest)  
-__14/04__ - Cynic no Carioca Club :brazil:  
+__08/04__ - Imperial Triumphant @Urban Spree :de:  
+__13/04__ - Wolves in the Throne Room @Lido :de:  
+__13/04__ - Incantation @Lido :de:  
 __13/05__ - Deicide no Fabrique Club :brazil:  
 __13/05__ - Kataklysm no Fabrique Club :brazil:     
 __25/05__ - Snarky Puppy na Audio :brazil: [Ingressos](https://www.ticket360.com.br/evento/26133/ingressos-para-snarky-puppy)  
