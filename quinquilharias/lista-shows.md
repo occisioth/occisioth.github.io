@@ -237,8 +237,6 @@ __25/02__ - Riffcoven @ Fenda315 :brazil:
 __25/02__ - Papangu @ Fenda315 :brazil:  
 __09/03__ - KHNVM @ FFFront :brazil:  
 __09/03__ - Infamous Glory @ FFFront :brazil:  
-
-### upcoming  
 __24/03__ - Corpse Grind @ Hangar 110 :brazil:  
 __24/03__ - Vazio @ Hangar 110 :brazil:  
 __24/03__ - Cemitério @ Hangar 110 :brazil:  
@@ -248,6 +246,10 @@ __08/04__ - Imperial Triumphant @ Urban Spree :de:
 __11/03__ - Lik @ Cassiopeia :de:  
 __13/04__ - Wolves in the Throne Room @ Lido :de:  
 __13/04__ - E-L-R @ Lido :de:  
+__16/04__ - Infamous Glory @ Container :brazil:  
+
+### upcoming  
+
 __13/05__ - [Steel meets Bone] Infamous Glory @ Rock Together :brazil:  
 __13/05__ - [Steel meets Bone] Riffcoven @ Rock Together :brazil:  
 __13/05__ - [Steel meets Bone] Finis Hominis @ Rock Together :brazil:  
