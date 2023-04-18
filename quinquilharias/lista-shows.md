@@ -243,7 +243,7 @@ __24/03__ - Cemitério @ Hangar 110 :brazil:
 __24/03__ - Monstrosity @ Hangar 110 :brazil:  
 __25/03__ - Katatonia @ Carioca Club :brazil:  
 __08/04__ - Imperial Triumphant @ Urban Spree :de:  
-__11/03__ - Lik @ Cassiopeia :de:  
+__11/04__ - Lik @ Cassiopeia :de:  
 __13/04__ - Wolves in the Throne Room @ Lido :de:  
 __13/04__ - E-L-R @ Lido :de:  
 __16/04__ - Infamous Glory @ Container :brazil:  
