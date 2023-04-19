@@ -250,6 +250,9 @@ __16/04__ - Infamous Glory @ Container :brazil:
 
 ### upcoming  
 
+__22/04__ - [Monsters of Rock] Candlemass @ Allianz Park :brazil:  
+__22/04__ - [Monsters of Rock] Deep Purple @ Allianz Park :brazil:  
+__22/04__ - [Monsters of Rock] KISS @ Allianz Park :brazil:  
 __13/05__ - [Steel meets Bone] Infamous Glory @ Rock Together :brazil:  
 __13/05__ - [Steel meets Bone] Riffcoven @ Rock Together :brazil:  
 __13/05__ - [Steel meets Bone] Finis Hominis @ Rock Together :brazil:  
@@ -260,6 +263,10 @@ __04/06__ - [MITA] Capital Inicial @ Novo Anhangabaú :brazil:
 __04/06__ - [MITA] The Mars Volta @ Novo Anhangabaú :brazil:  
 __17/06__ - Titãs @ Allianz Park :brazil:  
 __18/06__ - Nile @ Jai Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/nile-jaiclub)  
+__05/10__ - UADA @ Jai Club :brazil: [Ingressos](https://www.bilheto.com.br/evento/1264/Uada__Funeral_Putrid__Evil_Cult__Vazio)  
+__05/10__ - Funeral Putrid @ Jai Club :brazil:  
+__05/10__ - EvilCult @ Jai Club :brazil:  
+__05/10__ - Vazio @ Jai Club :brazil:  
 __21/10__ - Amenra @ Fabrique Club :brazil: [Ingressos](https://www.bilheto.com.br/evento/1214/AMENRA__HEXIS)  
 __21/10__ - HEXIS @ Fabrique Club :brazil:  
 
