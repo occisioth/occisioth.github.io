@@ -250,20 +250,35 @@ __16/04__ - Infamous Glory @ Container :brazil:
 __22/04__ - [Monsters of Rock] Candlemass @ Allianz Park :brazil:  
 __22/04__ - [Monsters of Rock] Deep Purple @ Allianz Park :brazil:  
 __22/04__ - [Monsters of Rock] Helloween @ Allianz Park :brazil:  
-
-### upcoming  
 __13/05__ - [Steel meets Bone] Infamous Glory @ Rock Together :brazil:  
 __13/05__ - [Steel meets Bone] Riffcoven @ Rock Together :brazil:  
 __13/05__ - [Steel meets Bone] Finis Hominis @ Rock Together :brazil:  
 __14/05__ - Deicide @ Fabrique Club :brazil:  
 __14/05__ - Kataklysm @ Fabrique Club :brazil:     
-__25/05__ - Snarky Puppy @ Audio :brazil: [Ingressos](https://www.ticket360.com.br/evento/26133/ingressos-para-snarky-puppy)  
+__27/05__ - Rogerio Skylab @ Audio :brazil:  
+
+### upcoming  
 __04/06__ - [MITA] Capital Inicial @ Novo Anhangabaú :brazil:  
 __04/06__ - [MITA] The Mars Volta @ Novo Anhangabaú :brazil:  
+__09/06__ - Dying Fetus @ Hangar 110 :brazil: [Ingressos](https://pixelticket.com.br/eventos/13220/dying-fetus-em-sao-paulo)  
 __17/06__ - Titãs @ Allianz Park :brazil:  
 __18/06__ - Nile @ Jai Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/nile-jaiclub)  
 __30/07__ - Fossilization @ Fenda :brazil:  
 __30/07__ - Blackening @ Fenda :brazil:  
+__07/09__ - [Setembro Negro] Voivod @ Carioca Club :brazil:  
+__07/09__ - [Setembro Negro] Primitive Man @ Carioca Club :brazil:  
+__08/09__ - [Setembro Negro] Torture Squad @ Carioca Club :brazil:  
+__08/09__ - [Setembro Negro] Purgatory @ Carioca Club :brazil:  
+__08/09__ - [Setembro Negro] Defleshed @ Carioca Club :brazil:  
+__08/09__ - [Setembro Negro] Immolation @ Carioca Club :brazil:  
+__09/09__ - [Setembro Negro] Test @ Carioca Club :brazil:  
+__09/09__ - [Setembro Negro] Sadistic Intent @ Carioca Club :brazil:  
+__09/09__ - [Setembro Negro] Bolldozer @ Carioca Club :brazil:  
+__09/09__ - [Setembro Negro] Sodom @ Carioca Club :brazil:  
+__10/09__ - [Setembro Negro] Demonical @ Carioca Club :brazil:  
+__10/09__ - [Setembro Negro] Acid King @ Carioca Club :brazil:  
+__10/09__ - [Setembro Negro] Assassin @ Carioca Club :brazil:  
+__10/09__ - [Setembro Negro] Cancer @ Carioca Club :brazil:  
 __05/10__ - UADA @ Jai Club :brazil: [Ingressos](https://www.bilheto.com.br/evento/1264/Uada__Funeral_Putrid__Evil_Cult__Vazio)  
 __05/10__ - Funeral Putrid @ Jai Club :brazil:  
 __05/10__ - EvilCult @ Jai Club :brazil:  
