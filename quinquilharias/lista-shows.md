@@ -271,11 +271,15 @@ __08/09__ - [Setembro Negro] Torture Squad @ Carioca Club :brazil:
 __08/09__ - [Setembro Negro] Purgatory @ Carioca Club :brazil:  
 __08/09__ - [Setembro Negro] Defleshed @ Carioca Club :brazil:  
 __08/09__ - [Setembro Negro] Immolation @ Carioca Club :brazil:  
+__09/09__ - [Setembro Negro] Open the Cofin @ Carioca Club :brazil:  
 __09/09__ - [Setembro Negro] Test @ Carioca Club :brazil:  
 __09/09__ - [Setembro Negro] Sadistic Intent @ Carioca Club :brazil:  
+__09/09__ - [Setembro Negro] Sacramentum @ Carioca Club :brazil:  
 __09/09__ - [Setembro Negro] Bolldozer @ Carioca Club :brazil:  
 __09/09__ - [Setembro Negro] Sodom @ Carioca Club :brazil:  
+__10/09__ - [Setembro Negro] Miasthenia @ Carioca Club :brazil:  
 __10/09__ - [Setembro Negro] Demonical @ Carioca Club :brazil:  
+__10/09__ - [Setembro Negro] Mantar @ Carioca Club :brazil:  
 __10/09__ - [Setembro Negro] Acid King @ Carioca Club :brazil:  
 __10/09__ - [Setembro Negro] Assassin @ Carioca Club :brazil:  
 __10/09__ - [Setembro Negro] Cancer @ Carioca Club :brazil:  
