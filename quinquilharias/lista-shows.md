@@ -256,11 +256,9 @@ __13/05__ - [Steel meets Bone] Finis Hominis @ Rock Together :brazil:
 __14/05__ - Deicide @ Fabrique Club :brazil:  
 __14/05__ - Kataklysm @ Fabrique Club :brazil:     
 __27/05__ - Rogerio Skylab @ Audio :brazil:  
+__04/06__ - [MITA] The Mars Volta @ Novo Anhangabaú :brazil:  
 
 ### upcoming  
-__04/06__ - [MITA] Capital Inicial @ Novo Anhangabaú :brazil:  
-__04/06__ - [MITA] The Mars Volta @ Novo Anhangabaú :brazil:  
-__09/06__ - Dying Fetus @ Hangar 110 :brazil: [Ingressos](https://pixelticket.com.br/eventos/13220/dying-fetus-em-sao-paulo)  
 __17/06__ - Titãs @ Allianz Park :brazil:  
 __18/06__ - Nile @ Jai Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/nile-jaiclub)  
 __30/07__ - Fossilization @ Fenda :brazil:  
