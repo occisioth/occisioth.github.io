@@ -257,10 +257,9 @@ __14/05__ - Deicide @ Fabrique Club :brazil:
 __14/05__ - Kataklysm @ Fabrique Club :brazil:     
 __27/05__ - Rogerio Skylab @ Audio :brazil:  
 __04/06__ - [MITA] The Mars Volta @ Novo Anhangabaú :brazil:  
+__17/06__ - Titãs @ Allianz Park :brazil:  
 
 ### upcoming  
-__17/06__ - Titãs @ Allianz Park :brazil:  
-__18/06__ - Nile @ Jai Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/nile-jaiclub)  
 __30/07__ - Fossilization @ Fenda :brazil:  
 __30/07__ - Blackening @ Fenda :brazil:  
 __07/09__ - [Setembro Negro] Voivod @ Carioca Club :brazil:  
@@ -281,10 +280,15 @@ __10/09__ - [Setembro Negro] Mantar @ Carioca Club :brazil:
 __10/09__ - [Setembro Negro] Acid King @ Carioca Club :brazil:  
 __10/09__ - [Setembro Negro] Assassin @ Carioca Club :brazil:  
 __10/09__ - [Setembro Negro] Cancer @ Carioca Club :brazil:  
-__05/10__ - UADA @ Jai Club :brazil: [Ingressos](https://www.bilheto.com.br/evento/1264/Uada__Funeral_Putrid__Evil_Cult__Vazio)  
+__20/09__ - Ghost @ Espaço Unimed :brazil: [Ingressos](https://www.bilheto.com.br/evento/1264/Uada__Funeral_Putrid__Evil_Cult__Vazio](https://www.livepass.com.br/artist/ghost/)  
+__27/09__ - Morrissey @ Espaço Unimed :brazil: [Ingressos](https://www.bilheto.com.br/evento/1264/Uada__Funeral_Putrid__Evil_Cult__Vazio](https://www.livepass.com.br/artist/ghost/)  
+__05/10__ - UADA @ Jai Club :brazil: [Ingressos](https://www.bilheto.com.br/evento/1264/Uada__Funeral_Putrid__Evil_Cult__Vazio](https://www.ticket360.com.br/ingressos/27234/ingressos-para-morrissey)  
 __05/10__ - Funeral Putrid @ Jai Club :brazil:  
 __05/10__ - EvilCult @ Jai Club :brazil:  
 __05/10__ - Vazio @ Jai Club :brazil:  
 __21/10__ - Amenra @ Fabrique Club :brazil: [Ingressos](https://www.bilheto.com.br/evento/1214/AMENRA__HEXIS)  
 __21/10__ - HEXIS @ Fabrique Club :brazil:  
+__12/11__ - Roger Waters @ Allianz Park :brazil:  
+__21/11__ - Swans @ Admiralspalast :de:  
+__23/11__ - Ufomammut @ Cassiopeia :de:  
 
