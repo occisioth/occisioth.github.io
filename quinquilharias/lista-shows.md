@@ -280,8 +280,6 @@ __10/09__ - [Setembro Negro] Mantar @ Carioca Club :brazil:
 __10/09__ - [Setembro Negro] Acid King @ Carioca Club :brazil:  
 __10/09__ - [Setembro Negro] Assassin @ Carioca Club :brazil:  
 __10/09__ - [Setembro Negro] Cancer @ Carioca Club :brazil:  
-__20/09__ - Ghost @ Espaço Unimed :brazil: [Ingressos](https://www.livepass.com.br/artist/ghost/)  
-__27/09__ - Morrissey @ Espaço Unimed :brazil: [Ingressos](https://www.ticket360.com.br/ingressos/27234/ingressos-para-morrissey)  
 __05/10__ - UADA @ Jai Club :brazil: [Ingressos](https://www.bilheto.com.br/evento/1264/Uada__Funeral_Putrid__Evil_Cult__Vazio)  
 __05/10__ - Funeral Putrid @ Jai Club :brazil:  
 __05/10__ - EvilCult @ Jai Club :brazil:  
