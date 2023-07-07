@@ -288,6 +288,7 @@ __05/10__ - EvilCult @ Jai Club :brazil:
 __05/10__ - Vazio @ Jai Club :brazil:  
 __21/10__ - Amenra @ Fabrique Club :brazil: [Ingressos](https://www.bilheto.com.br/evento/1214/AMENRA__HEXIS)  
 __21/10__ - HEXIS @ Fabrique Club :brazil:  
+__03/11__ - Vader @ TBC :brazil: (Ingressos não liberados)  
 __12/11__ - Roger Waters @ Allianz Park :brazil:  
 __21/11__ - Swans @ Admiralspalast :de:  
 __23/11__ - Ufomammut @ Cassiopeia :de:  
