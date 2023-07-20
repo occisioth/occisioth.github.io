@@ -288,6 +288,8 @@ __21/10__ - Amenra @ Fabrique Club :brazil: [Ingressos](https://www.bilheto.com.
 __21/10__ - HEXIS @ Fabrique Club :brazil:  
 __03/11__ - Vader @ TBC :brazil: (Ingressos não liberados)  
 __12/11__ - Roger Waters @ Allianz Park :brazil:  
+__18/11__ - Elder @ Hole 44 :de:  
 __21/11__ - Swans @ Admiralspalast :de:  
 __23/11__ - Ufomammut @ Cassiopeia :de:  
+__25/11__ - Devendra Banhart @ Passionskirche :de:  
 
