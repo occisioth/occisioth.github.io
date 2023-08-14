@@ -293,3 +293,7 @@ __21/11__ - Swans @ Admiralspalast :de:
 __23/11__ - Ufomammut @ Cassiopeia :de:  
 __25/11__ - Devendra Banhart @ Passionskirche :de:  
 
+## 2024  
+__23/02__ - Petbrick @ Carioca Club :brazil:  
+__23/02__ - Lightning Bolt @ Carioca Club :brazil:  
+
