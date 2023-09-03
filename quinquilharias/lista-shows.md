@@ -73,11 +73,11 @@ __03/08__ - Clutch no Cine Jóia :brazil:
 __07/03__ - Saturndust no Dissenso Lounge :brazil:  
 __07/03__ - Huey no Dissenso Lounge :brazil:  
 __07/03__ - E A Terra Nunca Me Pareceu Tão Distante no Dissenso Lounge :brazil:  
-__04/04__ - Jupiterian no Morfeus Club :brazil:  
-__04/04__ - Death by Starvation no Morfeus Club :brazil:  
-__04/04__ - Hierofante no Morfeus Club :brazil:  
-__05/04__ - Desalmado no Morfeus Club :brazil:  
-__05/04__ - Meant to Suffer no Morfeus Club :brazil:  
+__04/04__ - [Black Embers Fest] Jupiterian no Morfeus Club :brazil:  
+__04/04__ - [Black Embers Fest] Meant to Suffer no Morfeus Club :brazil:  
+__04/04__ - [Black Embers Fest] Afrohooligans no Morfeus Club :brazil:  
+__05/04__ - [Black Embers Fest] Death by Starvation no Morfeus Club :brazil:  
+__05/04__ - [Black Embers Fest] Desalmado no Morfeus Club :brazil:  
 __10/04__ - Herod no Serralheria :brazil:  
 __09/05__ - E A Terra Nunca Me Pareceu Tão Distante [2x] na Casa do Mancha :brazil:  
 __14/05__ - Jair Naves canta Patti Smith no SESC Vila Mariana :brazil:  
