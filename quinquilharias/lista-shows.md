@@ -258,8 +258,6 @@ __14/05__ - Kataklysm @ Fabrique Club :brazil:
 __27/05__ - Rogerio Skylab @ Audio :brazil:  
 __04/06__ - [MITA] The Mars Volta @ Novo Anhangabaú :brazil:  
 __17/06__ - Titãs @ Allianz Park :brazil:  
-
-### upcoming  
 __30/07__ - Fossilization @ Fenda :brazil:  
 __30/07__ - Blackening @ Fenda :brazil:  
 __07/09__ - [Setembro Negro] Voivod @ Carioca Club :brazil:  
@@ -268,8 +266,7 @@ __08/09__ - [Setembro Negro] Torture Squad @ Carioca Club :brazil:
 __08/09__ - [Setembro Negro] Purgatory @ Carioca Club :brazil:  
 __08/09__ - [Setembro Negro] Defleshed @ Carioca Club :brazil:  
 __08/09__ - [Setembro Negro] Immolation @ Carioca Club :brazil:  
-__09/09__ - [Setembro Negro] Open the Cofin @ Carioca Club :brazil:  
-__09/09__ - [Setembro Negro] Test @ Carioca Club :brazil:  
+__09/09__ - [Setembro Negro] Vulcano @ Carioca Club :brazil:  
 __09/09__ - [Setembro Negro] Sadistic Intent @ Carioca Club :brazil:  
 __09/09__ - [Setembro Negro] Sacramentum @ Carioca Club :brazil:  
 __09/09__ - [Setembro Negro] Bolldozer @ Carioca Club :brazil:  
@@ -280,6 +277,9 @@ __10/09__ - [Setembro Negro] Mantar @ Carioca Club :brazil:
 __10/09__ - [Setembro Negro] Acid King @ Carioca Club :brazil:  
 __10/09__ - [Setembro Negro] Assassin @ Carioca Club :brazil:  
 __10/09__ - [Setembro Negro] Cancer @ Carioca Club :brazil:  
+__10/09__ - [Setembro Negro] Triumph of Death (Hellhammer) @ Carioca Club :brazil:  
+
+### upcoming  
 __05/10__ - UADA @ Jai Club :brazil: [Ingressos](https://www.bilheto.com.br/evento/1264/Uada__Funeral_Putrid__Evil_Cult__Vazio)  
 __05/10__ - Funeral Putrid @ Jai Club :brazil:  
 __05/10__ - EvilCult @ Jai Club :brazil:  
