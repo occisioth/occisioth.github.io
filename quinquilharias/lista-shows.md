@@ -278,15 +278,14 @@ __10/09__ - [Setembro Negro] Acid King @ Carioca Club :brazil:
 __10/09__ - [Setembro Negro] Assassin @ Carioca Club :brazil:  
 __10/09__ - [Setembro Negro] Cancer @ Carioca Club :brazil:  
 __10/09__ - [Setembro Negro] Triumph of Death (Hellhammer) @ Carioca Club :brazil:  
+__05/10__ - UADA @ Jai Club :brazil: 
+__05/10__ - Vazio @ Jai Club :brazil:  
 
 ### upcoming  
-__05/10__ - UADA @ Jai Club :brazil: [Ingressos](https://www.bilheto.com.br/evento/1264/Uada__Funeral_Putrid__Evil_Cult__Vazio)  
-__05/10__ - Funeral Putrid @ Jai Club :brazil:  
-__05/10__ - EvilCult @ Jai Club :brazil:  
-__05/10__ - Vazio @ Jai Club :brazil:  
-__21/10__ - Amenra @ Fabrique Club :brazil: [Ingressos](https://www.bilheto.com.br/evento/1214/AMENRA__HEXIS)  
+__19/10__ - I Am Morbid @ Fabrique Club :brazil:  
+__21/10__ - Amenra @ Fabrique Club :brazil:  
 __21/10__ - HEXIS @ Fabrique Club :brazil:  
-__03/11__ - Vader @ TBC :brazil: (Ingressos não liberados)  
+__03/11__ - Vader @ Jai Club :brazil:  
 __12/11__ - Roger Waters @ Allianz Park :brazil:  
 __18/11__ - Elder @ Hole 44 :de:  
 __21/11__ - Swans @ Admiralspalast :de:  
@@ -296,4 +295,9 @@ __25/11__ - Devendra Banhart @ Passionskirche :de:
 ## 2024  
 __23/02__ - Petbrick @ Carioca Club :brazil:  
 __23/02__ - Lightning Bolt @ Carioca Club :brazil:  
-
+__29/02__ - Rotting Christ @ Carioca Club :brazil:  
+__14/04__ - SOEN @ Carioca Club :brazil:  
+__23/05__ - [Maryland Deathfest] :us:  
+__24/05__ - [Maryland Deathfest] :us:  
+__25/05__ - [Maryland Deathfest] :us:  
+__26/05__ - [Maryland Deathfest] :us:  
