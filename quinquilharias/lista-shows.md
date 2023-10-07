@@ -278,7 +278,7 @@ __10/09__ - [Setembro Negro] Acid King @ Carioca Club :brazil:
 __10/09__ - [Setembro Negro] Assassin @ Carioca Club :brazil:  
 __10/09__ - [Setembro Negro] Cancer @ Carioca Club :brazil:  
 __10/09__ - [Setembro Negro] Triumph of Death (Hellhammer) @ Carioca Club :brazil:  
-__05/10__ - UADA @ Jai Club :brazil: 
+__05/10__ - UADA @ Jai Club :brazil:  
 __05/10__ - Vazio @ Jai Club :brazil:  
 
 ### upcoming  
