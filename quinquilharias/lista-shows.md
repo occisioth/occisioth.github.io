@@ -295,9 +295,9 @@ __25/11__ - Devendra Banhart @ Passionskirche :de:
 ## 2024  
 __23/02__ - Petbrick @ Carioca Club :brazil:  
 __23/02__ - Lightning Bolt @ Carioca Club :brazil:  
-__29/02__ - Rotting Christ @ Carioca Club :brazil:  
-__03/04__ - Russian Circles @ Cine Joia :brazil: [Ingressos](https://pixelticket.com.br/eventos/17017/russian-circles)  
-__14/04__ - SOEN @ Carioca Club :brazil:  
+__29/02__ - Rotting Christ @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/rottingchrist-saopaulo)   
+__03/04__ - Russian Circles @ Cine Joia :brazil: [Ingresso](https://pixelticket.com.br/eventos/17017/russian-circles)  
+__14/04__ - SOEN @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/soen-1404)  
 __23/05__ - [Maryland Deathfest] :us:  
 __24/05__ - [Maryland Deathfest] :us:  
 __25/05__ - [Maryland Deathfest] :us:  
