@@ -280,14 +280,16 @@ __10/09__ - [Setembro Negro] Cancer @ Carioca Club :brazil:
 __10/09__ - [Setembro Negro] Triumph of Death (Hellhammer) @ Carioca Club :brazil:  
 __05/10__ - UADA @ Jai Club :brazil:  
 __05/10__ - Vazio @ Jai Club :brazil:  
-
-### upcoming  
 __19/10__ - I Am Morbid @ Fabrique Club :brazil:  
 __21/10__ - Amenra @ Fabrique Club :brazil:  
 __21/10__ - HEXIS @ Fabrique Club :brazil:  
 __03/11__ - Vader @ Jai Club :brazil:  
+
+### upcoming  
+__08/11__ - Alice Glass @ Madame :brazil:  
 __12/11__ - Roger Waters @ Allianz Park :brazil:  
 __18/11__ - Elder @ Hole 44 :de:  
+__20/11__ - Brutus @ Huxleys Neue Welt :de:  
 __21/11__ - Swans @ Admiralspalast :de:  
 __23/11__ - Ufomammut @ Cassiopeia :de:  
 __25/11__ - Devendra Banhart @ Passionskirche :de:  
