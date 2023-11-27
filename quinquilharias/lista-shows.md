@@ -284,15 +284,14 @@ __19/10__ - I Am Morbid @ Fabrique Club :brazil:
 __21/10__ - Amenra @ Fabrique Club :brazil:  
 __21/10__ - HEXIS @ Fabrique Club :brazil:  
 __03/11__ - Vader @ Jai Club :brazil:  
-
-### upcoming  
 __08/11__ - Alice Glass @ Madame :brazil:  
 __12/11__ - Roger Waters @ Allianz Park :brazil:  
 __18/11__ - Elder @ Hole 44 :de:  
-__20/11__ - Brutus @ Huxleys Neue Welt :de: [Ingresso](https://www.greyzone-tickets.de/produkte/730-tickets-brutus-huxley-s-neue-welt-berlin-am-20-11-2023)  
+__20/11__ - Brutus @ Huxleys Neue Welt :de:   
 __21/11__ - Swans @ Admiralspalast :de:  
 __23/11__ - Ufomammut @ Cassiopeia :de:  
-__25/11__ - Devendra Banhart @ Passionskirche :de: [Ingresso](https://www.eventim.de/event/devendra-banhart-passionskirche-kreuzberg-17190475/)  
+
+### upcoming  
 
 ## 2024  
 __23/02__ - Petbrick @ Carioca Club :brazil:  
