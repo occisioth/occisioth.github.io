@@ -297,6 +297,7 @@ __23/11__ - Ufomammut @ Cassiopeia :de:
 __23/02__ - Petbrick @ Carioca Club :brazil:  
 __23/02__ - Lightning Bolt @ Carioca Club :brazil:  
 __29/02__ - Rotting Christ @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/rottingchrist-saopaulo)   
+__02/03__ - King Krule @ Terra SP :brazil: [Ingresso](https://www.ingresse.com/kingkrule-sp)  
 __03/04__ - Russian Circles @ Cine Joia :brazil: [Ingresso](https://pixelticket.com.br/eventos/17017/russian-circles)  
 __14/04__ - SOEN @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/soen-1404)  
 __23/05__ - [Maryland Deathfest] :us:  
