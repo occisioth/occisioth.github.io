@@ -300,6 +300,7 @@ __29/02__ - Rotting Christ @ Carioca Club :brazil: [Ingresso](https://www.clubed
 __02/03__ - King Krule @ Terra SP :brazil: [Ingresso](https://www.ingresse.com/kingkrule-sp)  
 __03/04__ - Russian Circles @ Cine Joia :brazil: [Ingresso](https://pixelticket.com.br/eventos/17017/russian-circles)  
 __14/04__ - SOEN @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/soen-1404)  
+__26/04__ - [Summer Breeze] Mr. Big @ Memorial da America Latina :brazil:  
 __26/04__ - [Summer Breeze] Mercyful Fate @ Memorial da America Latina :brazil:  
 __23/05__ - [Maryland Deathfest] :us:  
 __24/05__ - [Maryland Deathfest] :us:  
