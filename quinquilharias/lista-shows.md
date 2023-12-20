@@ -302,7 +302,7 @@ __03/04__ - Russian Circles @ Cine Joia :brazil: [Ingresso](https://pixelticket.
 __14/04__ - SOEN @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/soen-1404)  
 __26/04__ - [Summer Breeze] Mr. Big @ Memorial da America Latina :brazil:  
 __26/04__ - [Summer Breeze] Mercyful Fate @ Memorial da America Latina :brazil:  
-__23/05__ - [Maryland Deathfest] :us:  
+__22/05__ - Pré Fest [Maryland Deathfest] :us:  
 __24/05__ - [Maryland Deathfest] :us:  
 __25/05__ - [Maryland Deathfest] :us:  
 __26/05__ - [Maryland Deathfest] :us:  
