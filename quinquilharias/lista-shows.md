@@ -307,3 +307,4 @@ __22/05__ - Pré Fest [Maryland Deathfest] :us:
 __24/05__ - [Maryland Deathfest] :us:  
 __25/05__ - [Maryland Deathfest] :us:  
 __26/05__ - [Maryland Deathfest] :us:  
+__07/12__ - Iron Maiden @Allianz Park :brazil:  
