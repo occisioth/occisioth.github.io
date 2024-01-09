@@ -294,8 +294,9 @@ __23/11__ - Ufomammut @ Cassiopeia :de:
 ### upcoming  
 
 ## 2024  
-__23/02__ - Petbrick @ Carioca Club :brazil:  
-__23/02__ - Lightning Bolt @ Carioca Club :brazil:  
+__25/02__ - Lightning Bolt @ Fabrique Club :brazil:  
+__25/02__ - Test @ Fabrique Club :brazil:  
+__25/02__ - DeafKids @ Fabrique Club :brazil:  
 __29/02__ - Rotting Christ @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/rottingchrist-saopaulo)   
 __02/03__ - King Krule @ Terra SP :brazil: [Ingresso](https://www.ingresse.com/kingkrule-sp)  
 __03/04__ - Russian Circles @ Cine Joia :brazil:  
