@@ -301,9 +301,12 @@ __29/02__ - Rotting Christ @ Carioca Club :brazil: [Ingresso](https://www.clubed
 __02/03__ - King Krule @ Terra SP :brazil: [Ingresso](https://www.ingresse.com/kingkrule-sp)  
 __03/04__ - Russian Circles @ Cine Joia :brazil:  
 __14/04__ - SOEN @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/soen-1404)  
-__26/04__ - [Summer Breeze] Mr. Big @ Memorial da America Latina :brazil:  
-__26/04__ - [Summer Breeze] Mercyful Fate @ Memorial da America Latina :brazil:  
 __27/04__ - Converge @ Fabrique Club :brazil:  
+__28/04__ - [Summer Breeze] Mercyful Fate @ Memorial da America Latina :brazil:  
+__28/04__ - [Summer Breeze] Anthrax @ Memorial da America Latina :brazil:  
+__28/04__ - [Summer Breeze] Carcass @ Memorial da America Latina :brazil:  
+__28/04__ - [Summer Breeze] Ratos de Porão @ Memorial da America Latina :brazil:  
+__28/04__ - [Summer Breeze] Amorphis @ Memorial da America Latina :brazil:  
 __22/05__ - Pré Fest [Maryland Deathfest] :us:  
 __24/05__ - [Maryland Deathfest] :us:  
 __25/05__ - [Maryland Deathfest] :us:  
