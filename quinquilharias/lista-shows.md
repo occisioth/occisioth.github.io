@@ -294,11 +294,8 @@ __23/11__ - Ufomammut @ Cassiopeia :de:
 ### upcoming  
 
 ## 2024  
-__25/02__ - Lightning Bolt @ Fabrique Club :brazil:  
-__25/02__ - Test @ Fabrique Club :brazil:  
-__25/02__ - DeafKids @ Fabrique Club :brazil:  
-__29/02__ - Rotting Christ @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/rottingchrist-saopaulo)   
-__02/03__ - King Krule @ Terra SP :brazil: [Ingresso](https://www.ingresse.com/kingkrule-sp)  
+__29/02__ - Rotting Christ @ Carioca Club :brazil:   
+__02/03__ - King Krule @ Terra SP :brazil:  
 __03/04__ - Russian Circles @ Cine Joia :brazil:  
 __14/04__ - SOEN @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/soen-1404)  
 __27/04__ - Converge @ Fabrique Club :brazil:  
@@ -307,10 +304,6 @@ __28/04__ - [Summer Breeze] Anthrax @ Memorial da America Latina :brazil:
 __28/04__ - [Summer Breeze] Carcass @ Memorial da America Latina :brazil:  
 __28/04__ - [Summer Breeze] Ratos de Porão @ Memorial da America Latina :brazil:  
 __28/04__ - [Summer Breeze] Amorphis @ Memorial da America Latina :brazil:  
-__22/05__ - Pré Fest [Maryland Deathfest] :us:  
-__24/05__ - [Maryland Deathfest] :us:  
-__25/05__ - [Maryland Deathfest] :us:  
-__26/05__ - [Maryland Deathfest] :us:  
-__10/08__ - Batushka @Legends :brazil:  [Ingresso](https://www.bilheto.com.br/comprar/2022/batushka)  
+__09/11__ - Asphyx @ Carioca Club :brazil:  [Ingresso](https://www.clubedoingresso.com/evento/asphyx-thetroopsofdoom-evilcult-saopaulo)  
 __07/12__ - VOLBEAT @Allianz Park :brazil:  
 __07/12__ - Iron Maiden @Allianz Park :brazil:  
