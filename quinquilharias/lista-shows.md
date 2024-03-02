@@ -304,6 +304,7 @@ __28/04__ - [Summer Breeze] Anthrax @ Memorial da America Latina :brazil:
 __28/04__ - [Summer Breeze] Carcass @ Memorial da America Latina :brazil:  
 __28/04__ - [Summer Breeze] Ratos de Porão @ Memorial da America Latina :brazil:  
 __28/04__ - [Summer Breeze] Amorphis @ Memorial da America Latina :brazil:  
+__08/09__ - Sepultura @ Memoria da America Latina :brazil:  
 __09/11__ - Asphyx @ Carioca Club :brazil:  [Ingresso](https://www.clubedoingresso.com/evento/asphyx-thetroopsofdoom-evilcult-saopaulo)  
 __07/12__ - VOLBEAT @Allianz Park :brazil:  
 __07/12__ - Iron Maiden @Allianz Park :brazil:  
