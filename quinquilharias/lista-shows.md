@@ -291,10 +291,12 @@ __20/11__ - Brutus @ Huxleys Neue Welt :de:
 __21/11__ - Swans @ Admiralspalast :de:  
 __23/11__ - Ufomammut @ Cassiopeia :de:  
 
-### upcoming  
-
 ## 2024  
 __29/02__ - Rotting Christ @ Carioca Club :brazil:   
+
+
+### upcoming  
+
 __02/03__ - King Krule @ Terra SP :brazil:  
 __03/04__ - Russian Circles @ Cine Joia :brazil:  
 __14/04__ - SOEN @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/soen-1404)  
