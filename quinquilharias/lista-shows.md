@@ -293,11 +293,9 @@ __23/11__ - Ufomammut @ Cassiopeia :de:
 
 ## 2024  
 __29/02__ - Rotting Christ @ Carioca Club :brazil:   
-
+__02/03__ - King Krule @ Terra SP :brazil:  
 
 ### upcoming  
-
-__02/03__ - King Krule @ Terra SP :brazil:  
 __03/04__ - Russian Circles @ Cine Joia :brazil:  
 __14/04__ - SOEN @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/soen-1404)  
 __27/04__ - Converge @ Fabrique Club :brazil:  
@@ -308,5 +306,6 @@ __28/04__ - [Summer Breeze] Ratos de Porão @ Memorial da America Latina :brazil
 __28/04__ - [Summer Breeze] Amorphis @ Memorial da America Latina :brazil:  
 __08/09__ - Sepultura @ Memoria da America Latina :brazil:  
 __09/11__ - Asphyx @ Carioca Club :brazil:  [Ingresso](https://www.clubedoingresso.com/evento/asphyx-thetroopsofdoom-evilcult-saopaulo)  
+__13/11__ - Satyricon @ Carioca Club :brazil:   
 __07/12__ - VOLBEAT @Allianz Park :brazil:  
 __07/12__ - Iron Maiden @Allianz Park :brazil:  
