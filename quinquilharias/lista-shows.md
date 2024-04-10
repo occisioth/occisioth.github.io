@@ -301,7 +301,7 @@ __10/04__ - Devendra Banhart @ Audio Club :brazil:
 __13/04__ - Infamous Glory @ Fenda :brazil:  
 __13/04__ - Nameless Gods @ Fenda :brazil:  
 __13/04__ - Rotten Entrails @ Fenda :brazil:  
-__14/04__ - SOEN @ Carioca Club :brazil: 
+__14/04__ - SOEN @ Carioca Club :brazil:  
 __27/04__ - Converge @ Fabrique Club :brazil:  
 __28/04__ - [Summer Breeze] Mercyful Fate @ Memorial da America Latina :brazil:  
 __28/04__ - [Summer Breeze] Anthrax @ Memorial da America Latina :brazil:  
