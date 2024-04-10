@@ -294,9 +294,10 @@ __23/11__ - Ufomammut @ Cassiopeia :de:
 ## 2024  
 __29/02__ - Rotting Christ @ Carioca Club :brazil:   
 __02/03__ - King Krule @ Terra SP :brazil:  
+__03/04__ - Russian Circles @ Cine Joia :brazil:  
 
 ### upcoming  
-__03/04__ - Russian Circles @ Cine Joia :brazil:  
+__10/04__ - Devendra Banhart @ Audio Club :brazil:  
 __14/04__ - SOEN @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/soen-1404)  
 __27/04__ - Converge @ Fabrique Club :brazil:  
 __28/04__ - [Summer Breeze] Mercyful Fate @ Memorial da America Latina :brazil:  
