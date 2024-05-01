@@ -1,4 +1,4 @@
-## 2009
+![image](https://github.com/occisioth/occisioth.github.io/assets/2287356/2e85ba0e-55b5-4278-8cb8-2c74af0ed9d2)## 2009
 
 __19/03__ - Elma no MDC Lab #1 :brazil:  
 __15/05__ - Heaven & Hell no Credicard Hall :brazil:  
@@ -312,6 +312,7 @@ __09/06__ - [koolmetal fest] Volcano @ VIP Station :brazil:
 __09/06__ - [koolmetal fest] Velho @ VIP Station :brazil:  
 __09/06__ - [koolmetal fest] Cemitério @ VIP Station :brazil:  
 __08/09__ - Sepultura @ Memoria da America Latina :brazil:  
+__29/10__ - Vomitory @ TBC :brazil: [Ingresso indisponivel]  
 __08/11__ - Cirith Ungol @ Hangar 110 :brazil: [Ingresso](https://www.sympla.com.br/evento/cirith-ungol-nightdemon-hellish-war-chumbo/2366428?referrer=www.last.fm)  
 __08/11__ - Night Demon @ Hangar 110 :brazil:  
 __09/11__ - Asphyx @ Carioca Club :brazil:  [Ingresso](https://www.clubedoingresso.com/evento/asphyx-thetroopsofdoom-evilcult-saopaulo)  
