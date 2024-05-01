@@ -295,19 +295,14 @@ __23/11__ - Ufomammut @ Cassiopeia :de:
 __29/02__ - Rotting Christ @ Carioca Club :brazil:   
 __02/03__ - King Krule @ Terra SP :brazil:  
 __03/04__ - Russian Circles @ Cine Joia :brazil:  
-
-### upcoming  
 __10/04__ - Devendra Banhart @ Audio Club :brazil:  
-__13/04__ - Infamous Glory @ Fenda :brazil:  
-__13/04__ - Nameless Gods @ Fenda :brazil:  
-__13/04__ - Rotten Entrails @ Fenda :brazil:  
-__14/04__ - SOEN @ Carioca Club :brazil:  
-__27/04__ - Converge @ Fabrique Club :brazil:  
 __28/04__ - [Summer Breeze] Mercyful Fate @ Memorial da America Latina :brazil:  
 __28/04__ - [Summer Breeze] Anthrax @ Memorial da America Latina :brazil:  
 __28/04__ - [Summer Breeze] Carcass @ Memorial da America Latina :brazil:  
-__28/04__ - [Summer Breeze] Ratos de Porão @ Memorial da America Latina :brazil:  
 __28/04__ - [Summer Breeze] Amorphis @ Memorial da America Latina :brazil:  
+
+
+### upcoming  
 __04/05__ - Infamous Glory @ Iglesia La Borratxeria :brazil:  
 __04/05__ - Podridão @ Iglesia La Borratxeria :brazil:  
 __09/06__ - [koolmetal fest] Possessed @ VIP Station :brazil: [Ingresso](https://www.clubedoingresso.com/evento/possessed-venominc-sp)  
@@ -320,6 +315,7 @@ __08/09__ - Sepultura @ Memoria da America Latina :brazil:
 __08/11__ - Cirith Ungol @ Hangar 110 :brazil: [Ingresso](https://www.sympla.com.br/evento/cirith-ungol-nightdemon-hellish-war-chumbo/2366428?referrer=www.last.fm)  
 __08/11__ - Night Demon @ Hangar 110 :brazil:  
 __09/11__ - Asphyx @ Carioca Club :brazil:  [Ingresso](https://www.clubedoingresso.com/evento/asphyx-thetroopsofdoom-evilcult-saopaulo)  
+__10/11__ - Converge @ Cine Joia :brazil:  
 __13/11__ - Satyricon @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/satyricon-saopaulo)  
 __07/12__ - VOLBEAT @Allianz Park :brazil:  
 __07/12__ - Iron Maiden @Allianz Park :brazil:  
