@@ -1,4 +1,4 @@
-![image](https://github.com/occisioth/occisioth.github.io/assets/2287356/2e85ba0e-55b5-4278-8cb8-2c74af0ed9d2)## 2009
+## 2009
 
 __19/03__ - Elma no MDC Lab #1 :brazil:  
 __15/05__ - Heaven & Hell no Credicard Hall :brazil:  
@@ -300,18 +300,18 @@ __28/04__ - [Summer Breeze] Mercyful Fate @ Memorial da America Latina :brazil:
 __28/04__ - [Summer Breeze] Anthrax @ Memorial da America Latina :brazil:  
 __28/04__ - [Summer Breeze] Carcass @ Memorial da America Latina :brazil:  
 __28/04__ - [Summer Breeze] Amorphis @ Memorial da America Latina :brazil:  
-
-
-### upcoming  
 __04/05__ - Infamous Glory @ Iglesia La Borratxeria :brazil:  
 __04/05__ - Podridão @ Iglesia La Borratxeria :brazil:  
+
+### upcoming  
 __09/06__ - [koolmetal fest] Possessed @ VIP Station :brazil: [Ingresso](https://www.clubedoingresso.com/evento/possessed-venominc-sp)  
 __09/06__ - [koolmetal fest] Venom INC @ VIP Station :brazil:   
 __09/06__ - [koolmetal fest] Necrodemon @ VIP Station :brazil:   
 __09/06__ - [koolmetal fest] Volcano @ VIP Station :brazil:  
 __09/06__ - [koolmetal fest] Velho @ VIP Station :brazil:  
 __09/06__ - [koolmetal fest] Cemitério @ VIP Station :brazil:  
-__08/09__ - Sepultura @ Memoria da America Latina :brazil:  
+__18/07__ - Clutch @ Fabrique Club :brazil:  
+__08/09__ - Sepultura @ Memorial da America Latina :brazil:  
 __29/10__ - Vomitory @ TBC :brazil: [Ingresso indisponivel]  
 __08/11__ - Cirith Ungol @ Hangar 110 :brazil: [Ingresso](https://www.sympla.com.br/evento/cirith-ungol-nightdemon-hellish-war-chumbo/2366428?referrer=www.last.fm)  
 __08/11__ - Night Demon @ Hangar 110 :brazil:  
