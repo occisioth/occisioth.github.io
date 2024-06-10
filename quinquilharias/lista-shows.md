@@ -302,14 +302,14 @@ __28/04__ - [Summer Breeze] Carcass @ Memorial da America Latina :brazil:
 __28/04__ - [Summer Breeze] Amorphis @ Memorial da America Latina :brazil:  
 __04/05__ - Infamous Glory @ Iglesia La Borratxeria :brazil:  
 __04/05__ - Podridão @ Iglesia La Borratxeria :brazil:  
-
-### upcoming  
-__09/06__ - [koolmetal fest] Possessed @ VIP Station :brazil: [Ingresso](https://www.clubedoingresso.com/evento/possessed-venominc-sp)  
+__01/06__ - Infamous Glory @ Jai Club :brazil:  
+__01_06__ - ROT @ Jai Club :brazil:  
+__09/06__ - [koolmetal fest] Possessed @ VIP Station :brazil:  
 __09/06__ - [koolmetal fest] Venom INC @ VIP Station :brazil:   
-__09/06__ - [koolmetal fest] Necrodemon @ VIP Station :brazil:   
 __09/06__ - [koolmetal fest] Volcano @ VIP Station :brazil:  
 __09/06__ - [koolmetal fest] Velho @ VIP Station :brazil:  
-__09/06__ - [koolmetal fest] Cemitério @ VIP Station :brazil:  
+
+### upcoming  
 __18/07__ - Clutch @ Fabrique Club :brazil:  
 __08/09__ - Sepultura @ Memorial da America Latina :brazil:  
 __29/10__ - Vomitory @ TBC :brazil: [Ingresso indisponivel]  
