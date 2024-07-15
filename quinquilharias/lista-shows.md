@@ -311,8 +311,8 @@ __09/06__ - [koolmetal fest] Velho @ VIP Station :brazil:
 
 ### upcoming  
 __20/07__ - Infamous Glory @ BH, MG :brazil:  
-__24/08__ - Torture Squad @ :brazil:  
-__24/08__ - Infamous Glory @ :brazil:  
+__24/08__ - Torture Squad @ Redstar Audio :brazil:  
+__24/08__ - Infamous Glory @ Redstar Audio :brazil:  
 __08/09__ - Sepultura @ Memorial da America Latina :brazil:  
 __28/09__ - Infamous Glory @ :brazil:  
 __08/11__ - Cirith Ungol @ Hangar 110 :brazil: [Ingresso](https://www.sympla.com.br/evento/cirith-ungol-nightdemon-hellish-war-chumbo/2366428?referrer=www.last.fm)  
