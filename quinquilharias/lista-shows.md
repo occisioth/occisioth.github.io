@@ -322,7 +322,7 @@ __28/09__ - Infamous Glory @ :brazil:
 
 ## Novembro  
 __03/11__ - Smashing Pumpkins @ Espaço Unimed :brazil:  
-__05/11__ - Travis @ Audio Club :brazil: 
+__05/11__ - Travis @ Audio Club :brazil:  
 __08/11__ - Cirith Ungol @ Hangar 110 :brazil: [Ingresso](https://www.sympla.com.br/evento/cirith-ungol-nightdemon-hellish-war-chumbo/2366428?referrer=www.last.fm)  
 __08/11__ - Night Demon @ Hangar 110 :brazil:  
 __09/11__ - Asphyx @ Carioca Club :brazil:  [Ingresso](https://www.clubedoingresso.com/evento/asphyx-thetroopsofdoom-evilcult-saopaulo)  
