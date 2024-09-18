@@ -310,23 +310,24 @@ __09/06__ - [koolmetal fest] Volcano @ VIP Station :brazil:
 __09/06__ - [koolmetal fest] Velho @ VIP Station :brazil:  
 __20/07__ - Infamous Glory @ Área 51, BH :brazil:  
 __20/07__ - Hiatus @ Área 51, BH :brazil:  
-
-### upcoming  
-## Agosto  
 __24/08__ - Torture Squad @ Redstar Audio :brazil:  
 __24/08__ - Infamous Glory @ Redstar Audio :brazil:  
-
-## Setembro  
 __08/09__ - Sepultura @ Memorial da America Latina :brazil:  
+
+### upcoming  
+## Setembro  
 __28/09__ - Infamous Glory @ :brazil:  
+
+## Outubro  
+__28/10__ - Napalm Death @ VIP Station :brazil:  
+__28/10__ - Dead Congregation @ VIP Station :brazil: [Ingressos](https://www.bilheto.com.br/comprar/2149/napalm-death)  
 
 ## Novembro  
 __03/11__ - Smashing Pumpkins @ Espaço Unimed :brazil:  
 __05/11__ - Travis @ Audio Club :brazil:  
-__08/11__ - Cirith Ungol @ Hangar 110 :brazil: [Ingresso](https://www.sympla.com.br/evento/cirith-ungol-nightdemon-hellish-war-chumbo/2366428?referrer=www.last.fm)  
-__08/11__ - Night Demon @ Hangar 110 :brazil:  
 __09/11__ - Asphyx @ Carioca Club :brazil:  [Ingresso](https://www.clubedoingresso.com/evento/asphyx-thetroopsofdoom-evilcult-saopaulo)  
 __10/11__ - Converge @ Cine Joia :brazil:  
+__11/11__ - Dickschneider @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/dirkschneider)  
 __13/11__ - Satyricon @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/satyricon-saopaulo)  
 
 ## Dezembro  
