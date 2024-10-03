@@ -331,7 +331,7 @@ __09/11__ - Asphyx @ Carioca Club :brazil:  [Ingresso](https://www.clubedoingres
 __10/11__ - Converge @ Cine Joia :brazil:  
 __11/11__ - Dickschneider @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/dirkschneider)  
 __13/11__ - Satyricon @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/satyricon-saopaulo)  
-__28/11__ - Racionais  
+__29/11__ - Racionais  
 
 ## Dezembro  
 __07/12__ - VOLBEAT @Allianz Park :brazil:  
