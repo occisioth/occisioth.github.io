@@ -319,16 +319,19 @@ __08/09__ - Sepultura @ Memorial da America Latina :brazil:
 __28/09__ - Infamous Glory @ :brazil:  
 
 ## Outubro  
+__13/10__ - Infamous Glory  
 __28/10__ - Napalm Death @ VIP Station :brazil:  
 __28/10__ - Dead Congregation @ VIP Station :brazil: [Ingressos](https://www.bilheto.com.br/comprar/2149/napalm-death)  
 
 ## Novembro  
+__02/11__ - Infamous Glory @ aruja  
 __03/11__ - Smashing Pumpkins @ Espaço Unimed :brazil:  
 __05/11__ - Travis @ Audio Club :brazil:  
 __09/11__ - Asphyx @ Carioca Club :brazil:  [Ingresso](https://www.clubedoingresso.com/evento/asphyx-thetroopsofdoom-evilcult-saopaulo)  
 __10/11__ - Converge @ Cine Joia :brazil:  
 __11/11__ - Dickschneider @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/dirkschneider)  
 __13/11__ - Satyricon @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/satyricon-saopaulo)  
+__28/11__ - Racionais  
 
 ## Dezembro  
 __07/12__ - VOLBEAT @Allianz Park :brazil:  
