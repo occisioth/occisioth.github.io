@@ -331,7 +331,10 @@ __28/10__ - Dead Congregation @ VIP Station :brazil: [Ingressos](https://www.bil
 
 
 ## Novembro  
-__02/11__ - Infamous Glory @ Aruja   
+__02/11__ - Infamous Glory @ Casa Aurea SP  
+__02/11__ - Mystifier @ Casa Aurea SP  
+__02/11__ - Comando Nuclear @ Casa Aurea SP  
+__02/11__ - Crueldade @ Casa Aurea SP  
 __03/11__ - Smashing Pumpkins @ Espaço Unimed :brazil:  
 __05/11__ - Travis @ Audio Club :brazil:  
 __09/11__ - Asphyx @ Carioca Club :brazil:  
