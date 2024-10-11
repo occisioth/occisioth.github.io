@@ -316,8 +316,9 @@ __08/09__ - Sepultura @ Memorial da America Latina :brazil:
 __28/09__ - Infamous Glory @ Rio de Janeiro :brazil:  
 __28/09__ - Sutura @ Rio de Janeiro :brazil:  
 
-### upcoming  
-## Outubro  
+
+## upcoming  
+### Outubro  
 __13/10__ - Infamous Glory @ Aruja  
 __13/10__ - Nervochaos @ Aruja  
 __13/10__ - Necroticus @ Aruja  
@@ -330,7 +331,7 @@ __28/10__ - Napalm Death @ VIP Station :brazil:
 __28/10__ - Dead Congregation @ VIP Station :brazil: [Ingressos](https://www.bilheto.com.br/comprar/2149/napalm-death)  
 
 
-## Novembro  
+### Novembro  
 __02/11__ - Infamous Glory @ Casa Aurea SP  
 __02/11__ - Mystifier @ Casa Aurea SP  
 __02/11__ - Comando Nuclear @ Casa Aurea SP  
@@ -343,6 +344,9 @@ __11/11__ - Dickschneider @ Carioca Club :brazil: [Ingresso](https://www.clubedo
 __13/11__ - Satyricon @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/satyricon-saopaulo)  
 __29/11__ - Racionais @ Espaço Unimed :brazil:  
 
-## Dezembro  
+### Dezembro  
 __07/12__ - VOLBEAT @Allianz Park :brazil:  
 __07/12__ - Iron Maiden @Allianz Park :brazil:  
+
+## 2025  
+__30/03__ - [Lollapalooza] Tool @ Autodromo de Interlagos  
