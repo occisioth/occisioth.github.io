@@ -315,27 +315,26 @@ __24/08__ - Infamous Glory @ Redstar Audio :brazil:
 __08/09__ - Sepultura @ Memorial da America Latina :brazil:  
 __28/09__ - Infamous Glory @ Rio de Janeiro :brazil:  
 __28/09__ - Sutura @ Rio de Janeiro :brazil:  
+__13/10__ - Infamous Glory @ Aruja :brazil:  
+__13/10__ - Nervochaos @ Aruja :brazil:  
+__13/10__ - Necroticus @ Aruja :brazil:  
+__13/10__ - Funeratus @ Aruja :brazil:  
+__13/10__ - Cemitério @ Aruja :brazil:  
+__13/10__ - Podridão @ Aruja :brazil:  
+__18/10__ - Infamous Glory @ Rock Together :brazil:  
+__18/10__ - Ran @ Rock Together :brazil:  
 
 
 ## upcoming  
 ### Outubro  
-__13/10__ - Infamous Glory @ Aruja  
-__13/10__ - Nervochaos @ Aruja  
-__13/10__ - Necroticus @ Aruja  
-__13/10__ - Funeratus @ Aruja  
-__13/10__ - Cemitério @ Aruja  
-__13/10__ - Podridão @ Aruja  
-__18/10__ - Infamous Glory @ Rock Together  
-__18/10__ - Ran @ Rock Together  
 __28/10__ - Napalm Death @ VIP Station :brazil:  
-__28/10__ - Dead Congregation @ VIP Station :brazil: [Ingressos](https://www.bilheto.com.br/comprar/2149/napalm-death)  
-
+__28/10__ - Dead Congregation @ VIP Station :brazil:  
 
 ### Novembro  
-__02/11__ - Infamous Glory @ Casa Aurea SP  
-__02/11__ - Mystifier @ Casa Aurea SP  
-__02/11__ - Comando Nuclear @ Casa Aurea SP  
-__02/11__ - Crueldade @ Casa Aurea SP  
+__02/11__ - Infamous Glory @ Casa Aurea SP :brazil:  
+__02/11__ - Mystifier @ Casa Aurea SP :brazil:  
+__02/11__ - Comando Nuclear @ Casa Aurea SP :brazil:  
+__02/11__ - Crueldade @ Casa Aurea SP :brazil:  
 __03/11__ - Smashing Pumpkins @ Espaço Unimed :brazil:  
 __05/11__ - Travis @ Audio Club :brazil:  
 __09/11__ - Asphyx @ Carioca Club :brazil:  
@@ -349,4 +348,4 @@ __07/12__ - VOLBEAT @Allianz Park :brazil:
 __07/12__ - Iron Maiden @Allianz Park :brazil:  
 
 ## 2025  
-__30/03__ - [Lollapalooza] Tool @ Autodromo de Interlagos  
+__30/03__ - [Lollapalooza] Tool @ Autodromo de Interlagos :brazil:  
