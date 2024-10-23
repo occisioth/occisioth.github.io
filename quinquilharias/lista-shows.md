@@ -340,6 +340,7 @@ __05/11__ - Travis @ Audio Club :brazil:
 __09/11__ - Asphyx @ Carioca Club :brazil:  
 __10/11__ - Converge @ Cine Joia :brazil:  
 __11/11__ - Dickschneider @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/dirkschneider)  
+__12/11__ - Hipocrisy @ Fabrique Club :brazil: [Ingresso](https://www.sympla.com.br/evento/hypocrisy-torture-squad-siegrid-ingrid/2691512?referrer=www.last.fm)  
 __13/11__ - Satyricon @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/satyricon-saopaulo)  
 __15/11__ - Katatonia @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/katatonia-saopaulo)  
 __29/11__ - Racionais @ Espaço Unimed :brazil:  
