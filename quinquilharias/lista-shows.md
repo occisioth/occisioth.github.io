@@ -323,13 +323,11 @@ __13/10__ - Cemitério @ Aruja :brazil:
 __13/10__ - Podridão @ Aruja :brazil:  
 __18/10__ - Infamous Glory @ Rock Together :brazil:  
 __18/10__ - Ran @ Rock Together :brazil:  
-
-
-## upcoming  
-### Outubro  
 __28/10__ - Napalm Death @ VIP Station :brazil:  
 __28/10__ - Dead Congregation @ VIP Station :brazil:  
 
+
+## upcoming  
 ### Novembro  
 __02/11__ - Infamous Glory @ Casa Aurea SP :brazil:  
 __02/11__ - Mystifier @ Casa Aurea SP :brazil:  
