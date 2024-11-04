@@ -325,15 +325,13 @@ __18/10__ - Infamous Glory @ Rock Together :brazil:
 __18/10__ - Ran @ Rock Together :brazil:  
 __28/10__ - Napalm Death @ VIP Station :brazil:  
 __28/10__ - Dead Congregation @ VIP Station :brazil:  
+__02/11__ - Infamous Glory @ Casa Aurea SP :brazil:  
+__02/11__ - Comando Nuclear @ Casa Aurea SP :brazil:  
+__03/11__ - The Smashing Pumpkins @ Espaço Unimed :brazil:  
 
 
 ## upcoming  
 ### Novembro  
-__02/11__ - Infamous Glory @ Casa Aurea SP :brazil:  
-__02/11__ - Mystifier @ Casa Aurea SP :brazil:  
-__02/11__ - Comando Nuclear @ Casa Aurea SP :brazil:  
-__02/11__ - Crueldade @ Casa Aurea SP :brazil:  
-__03/11__ - Smashing Pumpkins @ Espaço Unimed :brazil:  
 __05/11__ - Travis @ Audio Club :brazil:  
 __09/11__ - Asphyx @ Carioca Club :brazil:  
 __10/11__ - Converge @ Cine Joia :brazil:  
