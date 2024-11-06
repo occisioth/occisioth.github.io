@@ -316,14 +316,13 @@ __08/09__ - Sepultura @ Memorial da America Latina :brazil:
 __28/09__ - Infamous Glory @ Rio de Janeiro :brazil:  
 __28/09__ - Sutura @ Rio de Janeiro :brazil:  
 __13/10__ - Infamous Glory @ Aruja :brazil:  
-__13/10__ - Nervochaos @ Aruja :brazil:  
-__13/10__ - Necroticus @ Aruja :brazil:  
+__13/10__ - Nervo Chaos @ Aruja :brazil:  
+__13/10__ - Neuróticos @ Aruja :brazil:  
 __13/10__ - Funeratus @ Aruja :brazil:  
 __13/10__ - Cemitério @ Aruja :brazil:  
 __13/10__ - Podridão @ Aruja :brazil:  
 __18/10__ - Infamous Glory @ Rock Together :brazil:  
 __18/10__ - Ran @ Rock Together :brazil:  
-__28/10__ - Napalm Death @ VIP Station :brazil:  
 __28/10__ - Dead Congregation @ VIP Station :brazil:  
 __02/11__ - Infamous Glory @ Casa Aurea SP :brazil:  
 __02/11__ - Comando Nuclear @ Casa Aurea SP :brazil:  
