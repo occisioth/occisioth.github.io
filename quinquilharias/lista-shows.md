@@ -331,16 +331,17 @@ __09/11__ - Asphyx @ Carioca Club :brazil:
 __10/11__ - Converge @ Cine Joia :brazil: 
 __11/11__ - Dirkschneider @ Carioca Club :brazil:  
 __12/11__ - Hypocrisy @ Fabrique Club :brazil:  
-
-
+__15/11__ - Katatonia @ Carioca Club :brazil:  
 ## upcoming  
-### Novembro  
-__15/11__ - Katatonia @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/katatonia-saopaulo)  
-__29/11__ - Racionais @ Espaço Unimed :brazil:  
-
 ### Dezembro  
 __07/12__ - VOLBEAT @Allianz Park :brazil:  
 __07/12__ - Iron Maiden @Allianz Park :brazil:  
 
 ## 2025  
+__18/01__ - Infamous Glory @ Cotia :brazil:  
+__08/03__ - Infamous Glory @ Jai Club :brazil:  
+__21/03__ - Bewitched @ Carioca Club :brazil: (Ingressos)[]  
+__21/03__ - Desaster @ Carioca Club :brazil: 
+__21/03__ - Sacramentum @ Carioca Club :brazil: 
+__21/03__ - Sodom @ Carioca Club :brazil: 
 __30/03__ - [Lollapalooza] Tool @ Autodromo de Interlagos :brazil:  
