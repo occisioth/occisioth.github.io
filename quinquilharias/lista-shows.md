@@ -334,14 +334,20 @@ __12/11__ - Hypocrisy @ Fabrique Club :brazil:
 __15/11__ - Katatonia @ Carioca Club :brazil:  
 __07/12__ - VOLBEAT @Allianz Park :brazil:  
 __07/12__ - Iron Maiden @Allianz Park :brazil:  
-## upcoming  
+
 ## 2025  
 __18/01__ - Infamous Glory @ Cotia :brazil:  
+__26/01__ - Infamous Glory @ CCJ :brazil:  
+## upcoming  
+__28/02__ - The cult @ Vibra :brazil:  
+__28/02__ - Baroness @ Vibra :brazil:  
 __08/03__ - Infamous Glory @ Jai Club :brazil:  
 __21/03__ - Bewitched @ Carioca Club :brazil:  
 __21/03__ - Desaster @ Carioca Club :brazil:  
 __21/03__ - Sacramentum @ Carioca Club :brazil:  
 __21/03__ - Sodom @ Carioca Club :brazil:  
 __30/03__ - [Lollapalooza] Tool @ Autodromo de Interlagos :brazil:  
+__19/04__ - [Monsters of Rock] Judas Priest @ Allianz Park :brazil: [Ingressos](https://www.eventim.com.br/event/monsters-of-rock-30-anos-allianz-parque-19377274/)  
+__19/04__ - [Monsters of Rock] Opeth  @ Allianz Park :brazil:  
 __11/05__ - System of a Down @ Allianz Park :brazil:  
 __22/05__ - Beherit @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/beheritemsaopaulo-cariocaclub)  
