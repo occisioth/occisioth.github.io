@@ -339,7 +339,7 @@ __07/12__ - Iron Maiden @Allianz Park :brazil:
 __18/01__ - Infamous Glory @ Cotia :brazil:  
 __26/01__ - Infamous Glory @ CCJ :brazil:  
 ## upcoming  
-__28/02__ - The cult @ Vibra :brazil:  
+__28/02__ - The Cult @ Vibra :brazil:  
 __28/02__ - Baroness @ Vibra :brazil:  
 __16/03__ - Infamous Glory @ Jai Club :brazil:  
 __21/03__ - Bewitched @ Carioca Club :brazil:  
