@@ -341,7 +341,7 @@ __26/01__ - Infamous Glory @ CCJ :brazil:
 ## upcoming  
 __28/02__ - The cult @ Vibra :brazil:  
 __28/02__ - Baroness @ Vibra :brazil:  
-__08/03__ - Infamous Glory @ Jai Club :brazil:  
+__16/03__ - Infamous Glory @ Jai Club :brazil:  
 __21/03__ - Bewitched @ Carioca Club :brazil:  
 __21/03__ - Desaster @ Carioca Club :brazil:  
 __21/03__ - Sacramentum @ Carioca Club :brazil:  
