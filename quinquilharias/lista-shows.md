@@ -347,6 +347,9 @@ __21/03__ - Desaster @ Carioca Club :brazil:
 __21/03__ - Sacramentum @ Carioca Club :brazil:  
 __21/03__ - Sodom @ Carioca Club :brazil:  
 __30/03__ - [Lollapalooza] Tool @ Autodromo de Interlagos :brazil:  
+__12/04__ - Samael @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/diadfestival)  
+__12/04__ - Suffocation @ Carioca Club :brazil:  
+__12/04__ - Funeratus @ Carioca Club :brazil:  
 __19/04__ - [Monsters of Rock] Judas Priest @ Allianz Park :brazil: [Ingressos](https://www.eventim.com.br/event/monsters-of-rock-30-anos-allianz-parque-19377274/)  
 __19/04__ - [Monsters of Rock] Opeth  @ Allianz Park :brazil:  
 __09/05__ - Beat @ Espaço Unimed :brazil:  
