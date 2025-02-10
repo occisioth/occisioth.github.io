@@ -341,6 +341,7 @@ __26/01__ - Infamous Glory @ CCJ :brazil:
 ## upcoming  
 __28/02__ - The Cult @ Vibra :brazil:  
 __28/02__ - Baroness @ Vibra :brazil:  
+__15/03__ - Simply Red @ Allianz Park :brazil: [Ingressos](https://www.eventim.com.br/event/simply-red-allianz-parque-18031761/)  
 __16/03__ - Infamous Glory @ Jai Club :brazil:  
 __21/03__ - Bewitched @ Carioca Club :brazil:  
 __21/03__ - Desaster @ Carioca Club :brazil:  
