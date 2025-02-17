@@ -338,6 +338,7 @@ __07/12__ - Iron Maiden @Allianz Park :brazil:
 ## 2025  
 __18/01__ - Infamous Glory @ Cotia :brazil:  
 __26/01__ - Infamous Glory @ CCJ :brazil:  
+__16/02__ - Sting @ Parque Ibirapuera :brazil:  
 ## upcoming  
 __28/02__ - The Cult @ Vibra :brazil:  
 __28/02__ - Baroness @ Vibra :brazil:  
