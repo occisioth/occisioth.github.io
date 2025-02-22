@@ -359,3 +359,4 @@ __21/04__ - Savatage  @ Espaço Unimed :brazil:
 __09/05__ - Beat @ Espaço Unimed :brazil:  
 __11/05__ - System of a Down @ Allianz Park :brazil:  
 __22/05__ - Beherit @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/beheritemsaopaulo-cariocaclub)  
+__16/11__ - Glenn Hughes @ VIP Station :brazil: [Ingressos]()  
