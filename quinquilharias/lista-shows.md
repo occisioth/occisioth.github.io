@@ -339,9 +339,10 @@ __07/12__ - Iron Maiden @Allianz Park :brazil:
 __18/01__ - Infamous Glory @ Cotia :brazil:  
 __26/01__ - Infamous Glory @ CCJ :brazil:  
 __16/02__ - Sting @ Parque Ibirapuera :brazil:  
-## upcoming  
-__28/02__ - The Cult @ Vibra :brazil:  
 __28/02__ - Baroness @ Vibra :brazil:  
+## upcoming  
+__07/03__ - Cirith Ungol @ Hangar 110 :brazil:  
+__07/03__ - Night Demon @ Hangar 110 :brazil:  
 __15/03__ - Simply Red @ Allianz Park :brazil: [Ingressos](https://www.eventim.com.br/event/simply-red-allianz-parque-18031761/)  
 __16/03__ - Infamous Glory @ Jai Club :brazil:  
 __21/03__ - Bewitched @ Carioca Club :brazil:  
@@ -352,11 +353,11 @@ __30/03__ - [Lollapalooza] Tool @ Autodromo de Interlagos :brazil:
 __12/04__ - Samael @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/diadfestival)  
 __12/04__ - Suffocation @ Carioca Club :brazil:  
 __12/04__ - Funeratus @ Carioca Club :brazil:  
-__20/04__ - Judas Priest @ Vibra :brazil: [Ingressos]()  
+__20/04__ - Judas Priest @ Vibra :brazil: [Ingressos](https://www.eventim.com.br/artist/judaspriest/)  
 __20/04__ - Queensrÿche @ Vibra :brazil:  
-__21/04__ - Opeth  @ Espaço Unimed :brazil: [Ingressos]()  
+__21/04__ - Opeth  @ Espaço Unimed :brazil: [Ingressos](https://www.eventim.com.br/event/savatage-opeth-espaco-unimed-19861404/)  
 __21/04__ - Savatage  @ Espaço Unimed :brazil:  
 __09/05__ - Beat @ Espaço Unimed :brazil:  
 __11/05__ - System of a Down @ Allianz Park :brazil:  
 __22/05__ - Beherit @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/beheritemsaopaulo-cariocaclub)  
-__16/11__ - Glenn Hughes @ VIP Station :brazil: [Ingressos]()  
+__16/11__ - Glenn Hughes @ VIP Station :brazil: [Ingressos](https://ddtickets.com.br/comprar/25/glenn-hughes-em-sao-paulo)  
