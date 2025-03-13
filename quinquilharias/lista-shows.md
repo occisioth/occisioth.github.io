@@ -340,9 +340,9 @@ __18/01__ - Infamous Glory @ Cotia :brazil:
 __26/01__ - Infamous Glory @ CCJ :brazil:  
 __16/02__ - Sting @ Parque Ibirapuera :brazil:  
 __28/02__ - Baroness @ Vibra :brazil:  
-## upcoming  
 __07/03__ - Cirith Ungol @ Hangar 110 :brazil:  
 __07/03__ - Night Demon @ Hangar 110 :brazil:  
+## upcoming  
 __15/03__ - Simply Red @ Allianz Park :brazil: [Ingressos](https://www.eventim.com.br/event/simply-red-allianz-parque-18031761/)  
 __16/03__ - Infamous Glory @ Jai Club :brazil:  
 __21/03__ - Bewitched @ Carioca Club :brazil:  
