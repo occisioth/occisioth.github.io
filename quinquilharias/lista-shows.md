@@ -350,13 +350,13 @@ __21/03__ - Desaster @ Carioca Club :brazil:
 __21/03__ - Sacramentum @ Carioca Club :brazil:  
 __21/03__ - Sodom @ Carioca Club :brazil:  
 __30/03__ - [Lollapalooza] Tool @ Autodromo de Interlagos :brazil:  
-__12/04__ - Samael @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/diadfestival)  
+__12/04__ - Samael @ Carioca Club :brazil:  
 __12/04__ - Suffocation @ Carioca Club :brazil:  
 __12/04__ - Funeratus @ Carioca Club :brazil:  
-__20/04__ - Judas Priest @ Vibra :brazil: [Ingressos](https://www.eventim.com.br/artist/judaspriest/)  
-__20/04__ - Queensrÿche @ Vibra :brazil:  
-__21/04__ - Opeth  @ Espaço Unimed :brazil: [Ingressos](https://www.eventim.com.br/event/savatage-opeth-espaco-unimed-19861404/)  
-__21/04__ - Savatage  @ Espaço Unimed :brazil:  
+__19/04__ - [Monsters of Rock] Judas Priest @ Allianz park :brazil: 
+__19/04__ - [Monsters of Rock] Queensrÿche @ Allianz park :brazil:  
+__19/04__ - [Monsters of Rock] Opeth  @ Allianz park :brazil:   
+__19/04__ - [Monsters of Rock] Savatage  @ Allianz park :brazil:  
 __09/05__ - Beat @ Espaço Unimed :brazil:  
 __11/05__ - System of a Down @ Allianz Park :brazil:  
 __22/05__ - Beherit @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/beheritemsaopaulo-cariocaclub)  
