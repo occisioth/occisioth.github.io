@@ -361,3 +361,5 @@ __09/05__ - Beat @ Espaço Unimed :brazil:
 __11/05__ - System of a Down @ Allianz Park :brazil:  
 __22/05__ - Beherit @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/beheritemsaopaulo-cariocaclub)  
 __16/11__ - Glenn Hughes @ VIP Station :brazil: [Ingressos](https://ddtickets.com.br/comprar/25/glenn-hughes-em-sao-paulo)  
+__14/12__ - Black Dahlia Murder @ Hangar 110 :brazil: [ingresso](https://pixelticket.com.br/eventos/24738/black-dahlia-murder-em-sao-paulo)  
+__14/12__ - Gatecreeper @ Hangar 110 :brazil:  
