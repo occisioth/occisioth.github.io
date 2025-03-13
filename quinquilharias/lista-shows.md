@@ -353,7 +353,7 @@ __30/03__ - [Lollapalooza] Tool @ Autodromo de Interlagos :brazil:
 __12/04__ - Samael @ Carioca Club :brazil:  
 __12/04__ - Suffocation @ Carioca Club :brazil:  
 __12/04__ - Funeratus @ Carioca Club :brazil:  
-__19/04__ - [Monsters of Rock] Judas Priest @ Allianz park :brazil: 
+__19/04__ - [Monsters of Rock] Judas Priest @ Allianz park :brazil:  
 __19/04__ - [Monsters of Rock] Queensrÿche @ Allianz park :brazil:  
 __19/04__ - [Monsters of Rock] Opeth  @ Allianz park :brazil:   
 __19/04__ - [Monsters of Rock] Savatage  @ Allianz park :brazil:  
