@@ -343,7 +343,7 @@ __28/02__ - Baroness @ Vibra :brazil:
 __07/03__ - Cirith Ungol @ Hangar 110 :brazil:  
 __07/03__ - Night Demon @ Hangar 110 :brazil:  
 ## upcoming  
-__15/03__ - Simply Red @ Allianz Park :brazil: [Ingressos](https://www.eventim.com.br/event/simply-red-allianz-parque-18031761/)  
+__15/03__ - Simply Red @ Allianz Park :brazil: [Ingresso](https://www.eventim.com.br/event/simply-red-allianz-parque-18031761/)  
 __16/03__ - Infamous Glory @ Jai Club :brazil:  
 __21/03__ - Bewitched @ Carioca Club :brazil:  
 __21/03__ - Desaster @ Carioca Club :brazil:  
@@ -360,6 +360,7 @@ __19/04__ - [Monsters of Rock] Savatage  @ Allianz park :brazil:
 __09/05__ - Beat @ Espaço Unimed :brazil:  
 __11/05__ - System of a Down @ Allianz Park :brazil:  
 __22/05__ - Beherit @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/beheritemsaopaulo-cariocaclub)  
+__15/11__ - Groza @ Jai Club :brazil: [Ingresso](https://www.sympla.com.br/evento/groza-e-outlaw-em-sao-paulo/2829452)  
 __16/11__ - Glenn Hughes @ VIP Station :brazil: [Ingressos](https://ddtickets.com.br/comprar/25/glenn-hughes-em-sao-paulo)  
 __14/12__ - Black Dahlia Murder @ Hangar 110 :brazil: [ingresso](https://pixelticket.com.br/eventos/24738/black-dahlia-murder-em-sao-paulo)  
 __14/12__ - Gatecreeper @ Hangar 110 :brazil:  
