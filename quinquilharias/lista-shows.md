@@ -342,9 +342,9 @@ __16/02__ - Sting @ Parque Ibirapuera :brazil:
 __28/02__ - Baroness @ Vibra :brazil:  
 __07/03__ - Cirith Ungol @ Hangar 110 :brazil:  
 __07/03__ - Night Demon @ Hangar 110 :brazil:  
-## upcoming  
-__15/03__ - Simply Red @ Allianz Park :brazil: [Ingresso](https://www.eventim.com.br/event/simply-red-allianz-parque-18031761/)  
+__16/03__ - Lemars @ Jai Club :brazil:  
 __16/03__ - Infamous Glory @ Jai Club :brazil:  
+## upcoming  
 __21/03__ - Bewitched @ Carioca Club :brazil:  
 __21/03__ - Desaster @ Carioca Club :brazil:  
 __21/03__ - Sacramentum @ Carioca Club :brazil:  
