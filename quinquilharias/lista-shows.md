@@ -344,11 +344,11 @@ __07/03__ - Cirith Ungol @ Hangar 110 :brazil:
 __07/03__ - Night Demon @ Hangar 110 :brazil:  
 __16/03__ - Lemars @ Jai Club :brazil:  
 __16/03__ - Infamous Glory @ Jai Club :brazil:  
-## upcoming  
 __21/03__ - Bewitched @ Carioca Club :brazil:  
 __21/03__ - Desaster @ Carioca Club :brazil:  
 __21/03__ - Sacramentum @ Carioca Club :brazil:  
 __21/03__ - Sodom @ Carioca Club :brazil:  
+## upcoming  
 __30/03__ - [Lollapalooza] Tool @ Autodromo de Interlagos :brazil:  
 __12/04__ - Samael @ Carioca Club :brazil:  
 __12/04__ - Suffocation @ Carioca Club :brazil:  
