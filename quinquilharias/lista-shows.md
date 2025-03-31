@@ -348,8 +348,8 @@ __21/03__ - Bewitched @ Carioca Club :brazil:
 __21/03__ - Desaster @ Carioca Club :brazil:  
 __21/03__ - Sacramentum @ Carioca Club :brazil:  
 __21/03__ - Sodom @ Carioca Club :brazil:  
-## upcoming  
 __30/03__ - [Lollapalooza] Tool @ Autodromo de Interlagos :brazil:  
+## upcoming  
 __12/04__ - Samael @ Carioca Club :brazil:  
 __12/04__ - Suffocation @ Carioca Club :brazil:  
 __12/04__ - Funeratus @ Carioca Club :brazil:  
