@@ -359,6 +359,7 @@ __19/04__ - [Monsters of Rock] Opeth  @ Allianz park :brazil:
 __19/04__ - [Monsters of Rock] Savatage  @ Allianz park :brazil:  
 __09/05__ - Beat @ Espaço Unimed :brazil:  
 __11/05__ - System of a Down @ Allianz Park :brazil:  
+__15/05__ - Carcass @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/carcass-saopaulo)  
 __22/05__ - Beherit @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/beheritemsaopaulo-cariocaclub)  
 __15/11__ - Groza @ Jai Club :brazil: [Ingresso](https://www.sympla.com.br/evento/groza-e-outlaw-em-sao-paulo/2829452)  
 __16/11__ - Glenn Hughes @ VIP Station :brazil: [Ingressos](https://ddtickets.com.br/comprar/25/glenn-hughes-em-sao-paulo)  
