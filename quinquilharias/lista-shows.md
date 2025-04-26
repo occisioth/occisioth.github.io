@@ -349,14 +349,14 @@ __21/03__ - Desaster @ Carioca Club :brazil:
 __21/03__ - Sacramentum @ Carioca Club :brazil:  
 __21/03__ - Sodom @ Carioca Club :brazil:  
 __30/03__ - [Lollapalooza] Tool @ Autodromo de Interlagos :brazil:  
-## upcoming  
 __12/04__ - Samael @ Carioca Club :brazil:  
 __12/04__ - Suffocation @ Carioca Club :brazil:  
-__12/04__ - Funeratus @ Carioca Club :brazil:  
 __19/04__ - [Monsters of Rock] Judas Priest @ Allianz park :brazil:  
+__19/04__ - [Monsters of Rock] Europe @ Allianz park :brazil:  
 __19/04__ - [Monsters of Rock] Queensrÿche @ Allianz park :brazil:  
 __19/04__ - [Monsters of Rock] Opeth  @ Allianz park :brazil:   
 __19/04__ - [Monsters of Rock] Savatage  @ Allianz park :brazil:  
+## upcoming  
 __09/05__ - Beat @ Espaço Unimed :brazil:  
 __11/05__ - System of a Down @ Allianz Park :brazil:  
 __15/05__ - Carcass @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/carcass-saopaulo)  
