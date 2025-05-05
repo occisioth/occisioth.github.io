@@ -395,3 +395,6 @@ __15/11__ - Groza @ Jai Club :brazil: [Ingresso](https://www.sympla.com.br/event
 __16/11__ - Glenn Hughes @ VIP Station :brazil: [Ingressos](https://ddtickets.com.br/comprar/25/glenn-hughes-em-sao-paulo)  
 __14/12__ - Black Dahlia Murder @ Hangar 110 :brazil: [ingresso](https://pixelticket.com.br/eventos/24738/black-dahlia-murder-em-sao-paulo)  
 __14/12__ - Gatecreeper @ Hangar 110 :brazil:  
+
+## 2026
+__20/02__ - Bad Bunny @ Allianz Parque :brazil: [Ingresso](https://www.ticketmaster.com.br/event/bad-bunny-venda-geral)  
