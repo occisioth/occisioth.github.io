@@ -362,36 +362,37 @@ __09/05__ - Beat @ Espaço Unimed :brazil:
 __11/05__ - System of a Down @ Allianz Park :brazil:  
 __15/05__ - Carcass @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/carcass-saopaulo)  
 __22/05__ - Beherit @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/beheritemsaopaulo-cariocaclub)  
-05/09 - [Setembro Negro] Thulcandra @ VIP Station :brazil:  
-05/09 - [Setembro Negro] Primordial @ VIP Station :brazil:  
-05/09 - [Setembro Negro] Agalloch @ VIP Station :brazil:  
-05/09 - [Setembro Negro] Necrofilosophy @ VIP Station :brazil:  
-05/09 - [Setembro Negro] Vermin Womb @ VIP Station :brazil:  
-05/09 - [Setembro Negro] The Crown @ VIP Station :brazil:  
-06/09 - [Setembro Negro] Wisdom @ VIP Station :brazil:  
-06/09 - [Setembro Negro] Imprecation @ VIP Station :brazil:  
-06/09 - [Setembro Negro] 1349 @ VIP Station :brazil:  
-06/09 - [Setembro Negro] Coven @ VIP Station :brazil:  
-06/09 - [Setembro Negro] Macabre @ VIP Station :brazil:  
-06/09 - [Setembro Negro] Watain @ VIP Station :brazil:  
-06/09 - [Setembro Negro] Necromantticu @ VIP Station :brazil:  
-06/09 - [Setembro Negro] Leprovore @ VIP Station :brazil:  
-06/09 - [Setembro Negro] Féretro @ VIP Station :brazil:  
-06/09 - [Setembro Negro] Bütcher @ VIP Station :brazil:  
-06/09 - [Setembro Negro] Primitive Man @ VIP Station :brazil:  
-06/09 - [Setembro Negro] Incantation @ VIP Station :brazil:  
-07/09 - [Setembro Negro] The Mist @ VIP Station :brazil:  
-07/09 - [Setembro Negro] Ash Nazg Burz @ VIP Station :brazil:  
-07/09 - [Setembro Negro] Darkened Nocturn Slaughtercult @ VIP Station :brazil:  
-07/09 - [Setembro Negro] Power Trip @ VIP Station :brazil:  
-07/09 - [Setembro Negro] Candlemass @ VIP Station :brazil:  
-07/09 - [Setembro Negro] Triptykon plays Celtic Frost @ VIP Station :brazil:  
-07/09 - [Setembro Negro] Morkalv @ VIP Station :brazil:  
-07/09 - [Setembro Negro] Escafism @ VIP Station :brazil:  
-07/09 - [Setembro Negro] Orthostat @ VIP Station :brazil:  
-07/09 - [Setembro Negro] Tyranex @ VIP Station :brazil:  
-07/09 - [Setembro Negro] Nervochaos @ VIP Station :brazil:  
-07/09 - [Setembro Negro] Varathron @ VIP Station :brazil:  
+__15/06__ - Immolation @ Hangar 110 :brazil:  
+__05/09__ - [Setembro Negro] Thulcandra @ VIP Station :brazil:  
+__05/09__ - [Setembro Negro] Primordial @ VIP Station :brazil:  
+__05/09__ - [Setembro Negro] Agalloch @ VIP Station :brazil:  
+__05/09__ - [Setembro Negro] Necrofilosophy @ VIP Station :brazil:  
+__05/09__ - [Setembro Negro] Vermin Womb @ VIP Station :brazil:  
+__05/09__ - [Setembro Negro] The Crown @ VIP Station :brazil:  
+__06/09__ - [Setembro Negro] Wisdom @ VIP Station :brazil:  
+__06/09__ - [Setembro Negro] Imprecation @ VIP Station :brazil:  
+__06/09__ - [Setembro Negro] 1349 @ VIP Station :brazil:  
+__06/09__ - [Setembro Negro] Coven @ VIP Station :brazil:  
+__06/09__ - [Setembro Negro] Macabre @ VIP Station :brazil:  
+__06/09__ - [Setembro Negro] Over Kill @ VIP Station :brazil:  
+__06/09__ - [Setembro Negro] Necromantticu @ VIP Station :brazil:  
+__06/09__ - [Setembro Negro] Leprovore @ VIP Station :brazil:  
+__06/09__ - [Setembro Negro] Féretro @ VIP Station :brazil:  
+__06/09__ - [Setembro Negro] Bütcher @ VIP Station :brazil:  
+__06/09__ - [Setembro Negro] Primitive Man @ VIP Station :brazil:  
+__06/09__ - [Setembro Negro] Incantation @ VIP Station :brazil:  
+__07/09__ - [Setembro Negro] The Mist @ VIP Station :brazil:  
+__07/09__ - [Setembro Negro] Ash Nazg Burz @ VIP Station :brazil:  
+__07/09__ - [Setembro Negro] Darkened Nocturn Slaughtercult @ VIP Station :brazil:  
+__07/09__ - [Setembro Negro] Power Trip @ VIP Station :brazil:  
+__07/09__ - [Setembro Negro] Candlemass @ VIP Station :brazil:  
+__07/09__ - [Setembro Negro] Triptykon plays Celtic Frost @ VIP Station :brazil:  
+__07/09__ - [Setembro Negro] Morkalv @ VIP Station :brazil:  
+__07/09__ - [Setembro Negro] Escafism @ VIP Station :brazil:  
+__07/09__ - [Setembro Negro] Orthostat @ VIP Station :brazil:  
+__07/09__ - [Setembro Negro] Tyranex @ VIP Station :brazil:  
+__07/09__ - [Setembro Negro] Nervochaos @ VIP Station :brazil:  
+__07/09__ - [Setembro Negro] Varathron @ VIP Station :brazil:  
 __15/11__ - Groza @ Jai Club :brazil: [Ingresso](https://www.sympla.com.br/evento/groza-e-outlaw-em-sao-paulo/2829452)  
 __16/11__ - Glenn Hughes @ VIP Station :brazil: [Ingressos](https://ddtickets.com.br/comprar/25/glenn-hughes-em-sao-paulo)  
 __14/12__ - Black Dahlia Murder @ Hangar 110 :brazil: [ingresso](https://pixelticket.com.br/eventos/24738/black-dahlia-murder-em-sao-paulo)  
