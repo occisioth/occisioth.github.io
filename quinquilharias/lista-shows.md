@@ -358,11 +358,13 @@ __19/04__ - [Monsters of Rock] Opeth  @ Allianz park :brazil:
 __19/04__ - [Monsters of Rock] Savatage  @ Allianz park :brazil:  
 __09/05__ - Beat @ Espaço Unimed :brazil:  
 __11/05__ - System of a Down @ Allianz Park :brazil:  
+__22/05__ - Beherit @ Carioca Club :brazil:  
 
 ## upcoming  
-__22/05__ - Beherit @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/beheritemsaopaulo-cariocaclub)  
 __07/06__ - Infamous Glory @ La Iglesia :brazil:  
 __15/06__ - Immolation @ Hangar 110 :brazil:  
+__05/07__ - Infamous Glory @ Woodstock :brazil:  
+__19/07__ - Infamous Glory @ Depois do fim do Mundo Studios :brazil:  
 __05/09__ - [Setembro Negro] Thulcandra @ VIP Station :brazil:  
 __05/09__ - [Setembro Negro] Primordial @ VIP Station :brazil:  
 __05/09__ - [Setembro Negro] Agalloch @ VIP Station :brazil:  
