@@ -362,6 +362,7 @@ __22/05__ - Beherit @ Carioca Club :brazil:
 
 ## upcoming  
 __07/06__ - Infamous Glory @ La Iglesia :brazil:  
+__14/06__ - Alice Cooper @ Ibirapuera :brazil: [Ingresso](https://www.eventim.com.br/event/alice-cooper-best-of-blues-and-rock-2025-plateia-externa-do-auditorio-ibirapuera-19501088/?affiliate=88R)  
 __15/06__ - Immolation @ Hangar 110 :brazil:  
 __05/07__ - Infamous Glory @ Woodstock :brazil:  
 __19/07__ - Infamous Glory @ Depois do fim do Mundo Studios :brazil:  
