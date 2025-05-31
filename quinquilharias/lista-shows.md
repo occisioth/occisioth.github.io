@@ -396,6 +396,8 @@ __07/09__ - [Setembro Negro] Orthostat @ VIP Station :brazil:
 __07/09__ - [Setembro Negro] Tyranex @ VIP Station :brazil:  
 __07/09__ - [Setembro Negro] Nervochaos @ VIP Station :brazil:  
 __07/09__ - [Setembro Negro] Varathron @ VIP Station :brazil:  
+__03/10__ - Malevolent Creation @ City Lights :brazil: [Ingressos](https://101tickets.com.br/events/details/Krisiun-e-Malevolent-Creation)  
+__03/10__ - Krisiun @ City Lights :brazil:  
 __15/11__ - Groza @ Jai Club :brazil: [Ingresso](https://www.sympla.com.br/evento/groza-e-outlaw-em-sao-paulo/2829452)  
 __16/11__ - Glenn Hughes @ VIP Station :brazil: [Ingressos](https://ddtickets.com.br/comprar/25/glenn-hughes-em-sao-paulo)  
 __14/12__ - Black Dahlia Murder @ Hangar 110 :brazil: [ingresso](https://pixelticket.com.br/eventos/24738/black-dahlia-murder-em-sao-paulo)  
