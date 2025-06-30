@@ -359,11 +359,10 @@ __19/04__ - [Monsters of Rock] Savatage  @ Allianz park :brazil:
 __09/05__ - Beat @ Espaço Unimed :brazil:  
 __11/05__ - System of a Down @ Allianz Park :brazil:  
 __22/05__ - Beherit @ Carioca Club :brazil:  
+__07/06__ - Infamous Glory @ La Iglesia :brazil:  
+__15/06__ - Immolation @ Hangar 110 :brazil:  
 
 ## upcoming  
-__07/06__ - Infamous Glory @ La Iglesia :brazil:  
-__14/06__ - Alice Cooper @ Ibirapuera :brazil: [Ingresso](https://www.eventim.com.br/event/alice-cooper-best-of-blues-and-rock-2025-plateia-externa-do-auditorio-ibirapuera-19501088/?affiliate=88R)  
-__15/06__ - Immolation @ Hangar 110 :brazil:  
 __05/07__ - Infamous Glory @ Woodstock :brazil:  
 __19/07__ - Infamous Glory @ Depois do fim do Mundo Studios :brazil:  
 __05/09__ - [Setembro Negro] Thulcandra @ VIP Station :brazil:  
@@ -396,6 +395,7 @@ __07/09__ - [Setembro Negro] Orthostat @ VIP Station :brazil:
 __07/09__ - [Setembro Negro] Tyranex @ VIP Station :brazil:  
 __07/09__ - [Setembro Negro] Nervochaos @ VIP Station :brazil:  
 __07/09__ - [Setembro Negro] Varathron @ VIP Station :brazil:  
+__30/09__ - Kendrick Lamar @ Allianz Park :brazil: [Ingressos](https://www.ticketmaster.com.br/event/venda-geral-kendrick-lamar)  
 __03/10__ - Malevolent Creation @ City Lights :brazil: [Ingressos](https://101tickets.com.br/events/details/Krisiun-e-Malevolent-Creation)  
 __03/10__ - Krisiun @ City Lights :brazil:  
 __15/11__ - Groza @ Jai Club :brazil: [Ingresso](https://www.sympla.com.br/evento/groza-e-outlaw-em-sao-paulo/2829452)  
