@@ -361,9 +361,10 @@ __11/05__ - System of a Down @ Allianz Park :brazil:
 __22/05__ - Beherit @ Carioca Club :brazil:  
 __07/06__ - Infamous Glory @ La Iglesia :brazil:  
 __15/06__ - Immolation @ Hangar 110 :brazil:  
+__05/07__ - Infamous Glory @ Woodstock :brazil:  
 
 ## upcoming  
-__05/07__ - Infamous Glory @ Woodstock :brazil:  
+
 __19/07__ - Infamous Glory @ Depois do fim do Mundo Studios :brazil:  
 __05/09__ - [Setembro Negro] Thulcandra @ VIP Station :brazil:  
 __05/09__ - [Setembro Negro] Primordial @ VIP Station :brazil:  
@@ -395,9 +396,9 @@ __07/09__ - [Setembro Negro] Orthostat @ VIP Station :brazil:
 __07/09__ - [Setembro Negro] Tyranex @ VIP Station :brazil:  
 __07/09__ - [Setembro Negro] Nervochaos @ VIP Station :brazil:  
 __07/09__ - [Setembro Negro] Varathron @ VIP Station :brazil:  
+__12/09__ - Malevolent Creation @ City Lights :brazil:  
+__12/09__ - Krisiun @ City Lights :brazil:  
 __30/09__ - Kendrick Lamar @ Allianz Park :brazil:  
-__03/10__ - Malevolent Creation @ City Lights :brazil:  
-__03/10__ - Krisiun @ City Lights :brazil:  
 __15/11__ - Groza @ Jai Club :brazil: [Ingresso](https://www.sympla.com.br/evento/groza-e-outlaw-em-sao-paulo/2829452)  
 __16/11__ - Glenn Hughes @ VIP Station :brazil: [Ingressos](https://ddtickets.com.br/comprar/25/glenn-hughes-em-sao-paulo)  
 __07/12__ - Mayhem @ VIP Station :brazil: [Ingressos](https://101tickets.com.br/events/details/Mayhem-em-Sao-Paulo)  
