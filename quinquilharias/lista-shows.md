@@ -366,6 +366,9 @@ __05/07__ - Infamous Glory @ Woodstock :brazil:
 ## upcoming  
 
 __19/07__ - Infamous Glory @ Depois do fim do Mundo Studios :brazil:  
+__26/07__ - Infamous Glory @ Burning House :brazil:  
+__26/07__ - DER @ Burning House :brazil:  
+__26/07__ - Deaf Kids @ Burning House :brazil:  
 __05/09__ - [Setembro Negro] Thulcandra @ VIP Station :brazil:  
 __05/09__ - [Setembro Negro] Primordial @ VIP Station :brazil:  
 __05/09__ - [Setembro Negro] Agalloch @ VIP Station :brazil:  
