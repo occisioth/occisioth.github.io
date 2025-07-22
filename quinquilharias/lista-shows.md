@@ -401,6 +401,7 @@ __07/09__ - [Setembro Negro] Nervochaos @ VIP Station :brazil:
 __07/09__ - [Setembro Negro] Varathron @ VIP Station :brazil:  
 __12/09__ - Malevolent Creation @ City Lights :brazil:  
 __12/09__ - Krisiun @ City Lights :brazil:  
+__14/09__ - A Place to Bury Strangers @ Fabrique :brazil: [Ingresso](https://fastix.com.br/events/massarifest-2025-com-a-place-to-bury-strangers)  
 __30/09__ - Kendrick Lamar @ Allianz Park :brazil:  
 __15/11__ - Groza @ Jai Club :brazil: [Ingresso](https://www.sympla.com.br/evento/groza-e-outlaw-em-sao-paulo/2829452)  
 __16/11__ - Glenn Hughes @ VIP Station :brazil: [Ingressos](https://ddtickets.com.br/comprar/25/glenn-hughes-em-sao-paulo)  
