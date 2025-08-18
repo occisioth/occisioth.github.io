@@ -2,63 +2,62 @@
 
 ### Total: 85
 
-[Amenra](#amenra) •  
-[Baroness](#baroness) •  
-[Beherit](#beherit) •  
-[Black Sabbath](#black-sabbath) •  
-[Carcass](#carcass) •  
-[Celtic Frost](#celtic-frost) •  
-[Chat Pile](#chat-pile) •  
-[Daughters](#daughters) •  
-[Death](#death) •  
-[Death Grips](#death-grips) •  
-[Deep Purple](#deep-purple) •  
-[Deftones](#deftones) •  
-[Depeche Mode](#depeche-mode) •  
-[Dismember](#dismember) •  
-[Duran Duran](#duran-duran) •  
-[Echo & The Bunnymen](#echo--the-bunnymen) •  
-[Einstürzende Neubauten](#einstürzende-neubauten) •  
-[Faith No More](#faith-no-more) •  
-[Genghis Tron](#genghis-tron) •  
-[Godspeed You Black Emperor!](#godspeed-you-black-emperor) •  
-[Have A Nice Life](#have-a-nice-life) •  
-[Infamous Glory](#infamous-glory) •  
-[Johnny Cash](#johnny-cash) •  
-[Khanate](#khanate) •  
-[King Crimson](#king-crimson) •  
-[King Woman](#king-woman) •  
-[Kraftwerk](#kraftwerk) •  
-[Led Zeppelin](#led-zeppelin) •  
-[Massive Attack](#massive-attack) •  
-[Mastodon](#mastodon) •  
-[Mayhem](#mayhem) •  
-[Melvins](#melvins) •  
-[Mike Oldfield](#mike-oldfield) •  
-[Morphine](#morphine) •  
-[Neurosis](#neurosis) •  
-[Nick Cave & The Bad Seeds](#nick-cave--the-bad-seeds) •  
-[Nick Drake](#nick-drake) •  
-[Nirvana](#nirvana) •  
-[Pink Floyd](#pink-floyd) •  
-[Portishead](#portishead) •  
-[Puscifer](#puscifer) •  
-[Rage Against The Machine](#rage-against-the-machine) •  
-[Red Hot Chili Peppers](#red-hot-chili-peppers) •  
-[Samael](#samael) •  
-[Slayer](#slayer) •  
-[Sleep](#sleep) •  
-[Swans](#swans) •  
-[Tears For Fears](#tears-for-fears) •  
-[The Dillinger Escape Plan](#the-dillinger-escape-plan) •  
-[The Hollies](#the-hollies) •  
-[The Smiths](#the-smiths) •  
-[Tom Waits](#tom-waits) •  
-[Tool](#tool) •  
-[Ulver](#ulver) •  
-[Wu-Tang Clan](#wu-tang-clan)  
+[Amenra](#amenra) • 
+[Baroness](#baroness) • 
+[Beherit](#beherit) • 
+[Black Sabbath](#black-sabbath) • 
+[Carcass](#carcass) • 
+[Celtic Frost](#celtic-frost) • 
+[Chat Pile](#chat-pile) • 
+[Daughters](#daughters) • 
+[Death](#death) • 
+[Death Grips](#death-grips) • 
+[Deep Purple](#deep-purple) • 
+[Deftones](#deftones) • 
+[Depeche Mode](#depeche-mode) • 
+[Dismember](#dismember) • 
+[Duran Duran](#duran-duran) • 
+[Echo & The Bunnymen](#echo--the-bunnymen) • 
+[Einstürzende Neubauten](#einstürzende-neubauten) • 
+[Faith No More](#faith-no-more) • 
+[Genghis Tron](#genghis-tron) • 
+[Godspeed You Black Emperor!](#godspeed-you-black-emperor) • 
+[Have A Nice Life](#have-a-nice-life) • 
+[Infamous Glory](#infamous-glory) • 
+[Johnny Cash](#johnny-cash) • 
+[Khanate](#khanate) • 
+[King Crimson](#king-crimson) • 
+[King Woman](#king-woman) • 
+[Kraftwerk](#kraftwerk) • 
+[Led Zeppelin](#led-zeppelin) • 
+[Massive Attack](#massive-attack) • 
+[Mastodon](#mastodon) • 
+[Mayhem](#mayhem) • 
+[Melvins](#melvins) • 
+[Mike Oldfield](#mike-oldfield) • 
+[Morphine](#morphine) • 
+[Neurosis](#neurosis) • 
+[Nick Cave & The Bad Seeds](#nick-cave--the-bad-seeds) • 
+[Nick Drake](#nick-drake) • 
+[Nirvana](#nirvana) • 
+[Pink Floyd](#pink-floyd) • 
+[Portishead](#portishead) • 
+[Puscifer](#puscifer) • 
+[Rage Against The Machine](#rage-against-the-machine) • 
+[Red Hot Chili Peppers](#red-hot-chili-peppers) • 
+[Samael](#samael) • 
+[Slayer](#slayer) • 
+[Sleep](#sleep) • 
+[Swans](#swans) • 
+[Tears For Fears](#tears-for-fears) • 
+[The Dillinger Escape Plan](#the-dillinger-escape-plan) • 
+[The Hollies](#the-hollies) • 
+[The Smiths](#the-smiths) • 
+[Tom Waits](#tom-waits) • 
+[Tool](#tool) • 
+[Ulver](#ulver) • 
+[Wu-Tang Clan](#wu-tang-clan) 
 
----
 
 ## Amenra  
 * Mass VI  
