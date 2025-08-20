@@ -362,13 +362,11 @@ __22/05__ - Beherit @ Carioca Club :brazil:
 __07/06__ - Infamous Glory @ La Iglesia :brazil:  
 __15/06__ - Immolation @ Hangar 110 :brazil:  
 __05/07__ - Infamous Glory @ Woodstock :brazil:  
-
-## upcoming  
-
 __19/07__ - Infamous Glory @ Depois do fim do Mundo Studios :brazil:  
 __26/07__ - Infamous Glory @ Burning House :brazil:  
 __26/07__ - DER @ Burning House :brazil:  
-__26/07__ - Deaf Kids @ Burning House :brazil:  
+
+## upcoming  
 __05/09__ - [Setembro Negro] Thulcandra @ VIP Station :brazil:  
 __05/09__ - [Setembro Negro] Primordial @ VIP Station :brazil:  
 __05/09__ - [Setembro Negro] Agalloch @ VIP Station :brazil:  
@@ -414,5 +412,6 @@ __14/12__ - Gatecreeper @ Hangar 110 :brazil:
 __20/02__ - Bad Bunny @ Allianz Parque :brazil: [Ingresso](https://www.ticketmaster.com.br/event/bad-bunny-venda-geral)  
 __04/04__ - Mac DeMarco @ Audio :brazil: [Ingresso](https://ingresse.com/macdemarco-sp/)  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
+
 
 
