@@ -413,4 +413,6 @@ __14/12__ - Gatecreeper @ Hangar 110 :brazil:
 ## 2026
 __20/02__ - Bad Bunny @ Allianz Parque :brazil: [Ingresso](https://www.ticketmaster.com.br/event/bad-bunny-venda-geral)  
 __04/04__ - Mac DeMarco @ Audio :brazil: [Ingresso](https://ingresse.com/macdemarco-sp/)  
+__31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
+
 
