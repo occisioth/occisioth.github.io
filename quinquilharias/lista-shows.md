@@ -370,32 +370,16 @@ __26/07__ - DER @ Burning House :brazil:
 __05/09__ - [Setembro Negro] Thulcandra @ VIP Station :brazil:  
 __05/09__ - [Setembro Negro] Primordial @ VIP Station :brazil:  
 __05/09__ - [Setembro Negro] Agalloch @ VIP Station :brazil:  
-__05/09__ - [Setembro Negro] Necrofilosophy @ VIP Station :brazil:  
 __05/09__ - [Setembro Negro] Vermin Womb @ VIP Station :brazil:  
 __05/09__ - [Setembro Negro] The Crown @ VIP Station :brazil:  
-__06/09__ - [Setembro Negro] Wisdom @ VIP Station :brazil:  
 __06/09__ - [Setembro Negro] Imprecation @ VIP Station :brazil:  
 __06/09__ - [Setembro Negro] 1349 @ VIP Station :brazil:  
 __06/09__ - [Setembro Negro] Coven @ VIP Station :brazil:  
 __06/09__ - [Setembro Negro] Macabre @ VIP Station :brazil:  
-__06/09__ - [Setembro Negro] Over Kill @ VIP Station :brazil:  
-__06/09__ - [Setembro Negro] Necromantticu @ VIP Station :brazil:  
-__06/09__ - [Setembro Negro] Leprovore @ VIP Station :brazil:  
-__06/09__ - [Setembro Negro] Féretro @ VIP Station :brazil:  
-__06/09__ - [Setembro Negro] Bütcher @ VIP Station :brazil:  
 __06/09__ - [Setembro Negro] Primitive Man @ VIP Station :brazil:  
 __06/09__ - [Setembro Negro] Incantation @ VIP Station :brazil:  
-__07/09__ - [Setembro Negro] The Mist @ VIP Station :brazil:  
-__07/09__ - [Setembro Negro] Ash Nazg Burz @ VIP Station :brazil:  
-__07/09__ - [Setembro Negro] Darkened Nocturn Slaughtercult @ VIP Station :brazil:  
-__07/09__ - [Setembro Negro] Power Trip @ VIP Station :brazil:  
 __07/09__ - [Setembro Negro] Candlemass @ VIP Station :brazil:  
 __07/09__ - [Setembro Negro] Triptykon plays Celtic Frost @ VIP Station :brazil:  
-__07/09__ - [Setembro Negro] Morkalv @ VIP Station :brazil:  
-__07/09__ - [Setembro Negro] Escafism @ VIP Station :brazil:  
-__07/09__ - [Setembro Negro] Orthostat @ VIP Station :brazil:  
-__07/09__ - [Setembro Negro] Tyranex @ VIP Station :brazil:  
-__07/09__ - [Setembro Negro] Nervochaos @ VIP Station :brazil:  
 __07/09__ - [Setembro Negro] Varathron @ VIP Station :brazil:  
 __12/09__ - Malevolent Creation @ City Lights :brazil:  
 __12/09__ - Krisiun @ City Lights :brazil:  
@@ -414,6 +398,7 @@ __20/02__ - Bad Bunny @ Allianz Parque :brazil: [Ingresso](https://www.ticketmas
 __04/04__ - Mac DeMarco @ Audio :brazil: [Ingresso](https://ingresse.com/macdemarco-sp/)  
 __15/10__ - The Gathering with Anneke @ Audio :brazil:  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
+
 
 
 
