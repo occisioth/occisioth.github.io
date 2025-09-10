@@ -365,22 +365,17 @@ __05/07__ - Infamous Glory @ Woodstock :brazil:
 __19/07__ - Infamous Glory @ Depois do fim do Mundo Studios :brazil:  
 __26/07__ - Infamous Glory @ Burning House :brazil:  
 __26/07__ - DER @ Burning House :brazil:  
-
-## upcoming  
 __05/09__ - [Setembro Negro] Thulcandra @ VIP Station :brazil:  
 __05/09__ - [Setembro Negro] Primordial @ VIP Station :brazil:  
 __05/09__ - [Setembro Negro] Agalloch @ VIP Station :brazil:  
 __05/09__ - [Setembro Negro] Vermin Womb @ VIP Station :brazil:  
 __05/09__ - [Setembro Negro] The Crown @ VIP Station :brazil:  
-__06/09__ - [Setembro Negro] Imprecation @ VIP Station :brazil:  
 __06/09__ - [Setembro Negro] 1349 @ VIP Station :brazil:  
-__06/09__ - [Setembro Negro] Coven @ VIP Station :brazil:  
-__06/09__ - [Setembro Negro] Macabre @ VIP Station :brazil:  
 __06/09__ - [Setembro Negro] Primitive Man @ VIP Station :brazil:  
-__06/09__ - [Setembro Negro] Incantation @ VIP Station :brazil:  
 __07/09__ - [Setembro Negro] Candlemass @ VIP Station :brazil:  
 __07/09__ - [Setembro Negro] Triptykon plays Celtic Frost @ VIP Station :brazil:  
-__07/09__ - [Setembro Negro] Varathron @ VIP Station :brazil:  
+
+## upcoming  
 __12/09__ - Malevolent Creation @ City Lights :brazil:  
 __12/09__ - Krisiun @ City Lights :brazil:  
 __14/09__ - A Place to Bury Strangers @ Fabrique :brazil: [Ingresso](https://fastix.com.br/events/massarifest-2025-com-a-place-to-bury-strangers)  
@@ -398,6 +393,7 @@ __20/02__ - Bad Bunny @ Allianz Parque :brazil: [Ingresso](https://www.ticketmas
 __04/04__ - Mac DeMarco @ Audio :brazil: [Ingresso](https://ingresse.com/macdemarco-sp/)  
 __15/10__ - The Gathering with Anneke @ Audio :brazil:  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
+
 
 
 
