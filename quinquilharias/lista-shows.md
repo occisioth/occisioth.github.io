@@ -374,13 +374,11 @@ __06/09__ - [Setembro Negro] 1349 @ VIP Station :brazil:
 __06/09__ - [Setembro Negro] Primitive Man @ VIP Station :brazil:  
 __07/09__ - [Setembro Negro] Candlemass @ VIP Station :brazil:  
 __07/09__ - [Setembro Negro] Triptykon plays Celtic Frost @ VIP Station :brazil:  
+__12/09__ - Malevolent Creation @ City Lights :brazil:  
 
 ## upcoming  
-__12/09__ - Malevolent Creation @ City Lights :brazil:  
-__12/09__ - Krisiun @ City Lights :brazil:  
-__14/09__ - A Place to Bury Strangers @ Fabrique :brazil: [Ingresso](https://fastix.com.br/events/massarifest-2025-com-a-place-to-bury-strangers)  
 __30/09__ - Kendrick Lamar @ Allianz Park :brazil:  
-__15/11__ - Groza @ Jai Club :brazil: [Ingresso](https://www.sympla.com.br/evento/groza-e-outlaw-em-sao-paulo/2829452)  
+__13/11__ - Massive Attack @ Espaço das Américas :brazil:  
 __16/11__ - Glenn Hughes @ VIP Station :brazil: [Ingressos](https://ddtickets.com.br/comprar/25/glenn-hughes-em-sao-paulo)  
 __30/11__ - Boris @ Fabrique Club :brazil:  
 __07/12__ - Mayhem @ VIP Station :brazil: [Ingressos](https://101tickets.com.br/events/details/Mayhem-em-Sao-Paulo)  
@@ -393,6 +391,7 @@ __20/02__ - Bad Bunny @ Allianz Parque :brazil: [Ingresso](https://www.ticketmas
 __04/04__ - Mac DeMarco @ Audio :brazil: [Ingresso](https://ingresse.com/macdemarco-sp/)  
 __15/10__ - The Gathering with Anneke @ Audio :brazil:  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
+
 
 
 
