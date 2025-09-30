@@ -393,11 +393,13 @@ __14/12__ - Black Dahlia Murder @ Hangar 110 :brazil: [ingresso](https://pixelti
 __14/12__ - Gatecreeper @ Hangar 110 :brazil:  
 
 ## 2026
+__24/01__ - Death to All @ Carioca Club [Ingressos](https://www.clubedoingresso.com/evento/deathtoall-saopaulo)  
 __08/02__ - Weather Systems @ Carioca Club [Ingressos](https://www.clubedoingresso.com/evento/weathersystem-saopaulo)  
 __20/02__ - Bad Bunny @ Allianz Parque :brazil: [Ingresso](https://www.ticketmaster.com.br/event/bad-bunny-venda-geral)  
 __04/04__ - Mac DeMarco @ Audio :brazil: [Ingresso](https://ingresse.com/macdemarco-sp/)  
 __15/10__ - The Gathering with Anneke @ Audio :brazil:  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
+
 
 
 
