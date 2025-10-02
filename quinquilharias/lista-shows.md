@@ -375,13 +375,10 @@ __06/09__ - [Setembro Negro] Primitive Man @ VIP Station :brazil:
 __07/09__ - [Setembro Negro] Candlemass @ VIP Station :brazil:  
 __07/09__ - [Setembro Negro] Triptykon plays Celtic Frost @ VIP Station :brazil:  
 __12/09__ - Malevolent Creation @ City Lights :brazil:  
+__30/09__ - Ca7riel y Paco Amoroso @ Allianz Park :brazil:  
+__30/09__ - Kendrick Lamar @ Allianz Park :brazil:  
 
 ## upcoming  
-__30/09__ - Kendrick Lamar @ Allianz Park :brazil:  
-__25/10__ - Miasthenia @ La iglesia :brazil: [Ingressos](https://101tickets.com.br/events/details/Miasthenia,-Grave-Desecrator,-Velho-e-Podri-em-Sao)  
-__25/10__ - Grave Desecrator @ La iglesia :brazil:  
-__25/10__ - Velho @ La iglesia :brazil:  
-__25/10__ - Podridão @ La iglesia :brazil:  
 __02/11__ - Marduk @ Manifesto :brazil:  [Ingressos](https://www.clubedoingresso.com/evento/marduk-02-11)  
 __07/11__ - Harakiri from the Sky @ Burning House [](https://www.sympla.com.br/evento/harakiri-for-the-sky-em-sao-paulo/3059612?referrer=www.last.fm)  
 __13/11__ - Massive Attack @ Espaço das Américas :brazil:  
@@ -399,6 +396,7 @@ __20/02__ - Bad Bunny @ Allianz Parque :brazil: [Ingresso](https://www.ticketmas
 __04/04__ - Mac DeMarco @ Audio :brazil: [Ingresso](https://ingresse.com/macdemarco-sp/)  
 __15/10__ - The Gathering with Anneke @ Audio :brazil:  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
+
 
 
 
