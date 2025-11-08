@@ -379,14 +379,12 @@ __30/09__ - Ca7riel y Paco Amoroso @ Allianz Park :brazil:
 __30/09__ - Kendrick Lamar @ Allianz Park :brazil:  
 
 ## upcoming  
-__07/11__ - Harakiri from the Sky @ Burning House [Ingressos](https://www.sympla.com.br/evento/harakiri-for-the-sky-em-sao-paulo/3059612?referrer=www.last.fm)  
 __13/11__ - Massive Attack @ Espaço das Américas :brazil:  
 __16/11__ - Glenn Hughes @ VIP Station :brazil: [Ingressos](https://ddtickets.com.br/comprar/25/glenn-hughes-em-sao-paulo)  
 __23/11__ - Ulcerate @ La Iglesia :brazil:  
 __30/11__ - Boris @ Fabrique Club :brazil:  
 __07/12__ - Mayhem @ VIP Station :brazil: [Ingressos](https://101tickets.com.br/events/details/Mayhem-em-Sao-Paulo)  
-__14/12__ - Black Dahlia Murder @ Hangar 110 :brazil: [ingresso](https://pixelticket.com.br/eventos/24738/black-dahlia-murder-em-sao-paulo)  
-__14/12__ - Gatecreeper @ Hangar 110 :brazil:  
+
 
 ## 2026
 __24/01__ - Death to All @ Carioca Club [Ingressos](https://www.clubedoingresso.com/evento/deathtoall-saopaulo)  
@@ -395,15 +393,3 @@ __20/02__ - Bad Bunny @ Allianz Parque :brazil: [Ingresso](https://www.ticketmas
 __04/04__ - Mac DeMarco @ Audio :brazil: [Ingresso](https://ingresse.com/macdemarco-sp/)  
 __15/10__ - The Gathering with Anneke @ Audio :brazil:  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
-
-
-
-
-
-
-
-
-
-
-
-
