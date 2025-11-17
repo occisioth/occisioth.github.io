@@ -377,14 +377,13 @@ __07/09__ - [Setembro Negro] Triptykon plays Celtic Frost @ VIP Station :brazil:
 __12/09__ - Malevolent Creation @ City Lights :brazil:  
 __30/09__ - Ca7riel y Paco Amoroso @ Allianz Park :brazil:  
 __30/09__ - Kendrick Lamar @ Allianz Park :brazil:  
+__13/11__ - Cavalera Conspiracy @ Espaço das Américas :brazil:  
+__13/11__ - Massive Attack @ Espaço das Américas :brazil:  
 
 ## upcoming  
-__13/11__ - Massive Attack @ Espaço das Américas :brazil:  
-__16/11__ - Glenn Hughes @ VIP Station :brazil: [Ingressos](https://ddtickets.com.br/comprar/25/glenn-hughes-em-sao-paulo)  
 __23/11__ - Ulcerate @ La Iglesia :brazil:  
 __30/11__ - Boris @ Fabrique Club :brazil:  
 __07/12__ - Mayhem @ VIP Station :brazil: [Ingressos](https://101tickets.com.br/events/details/Mayhem-em-Sao-Paulo)  
-
 
 ## 2026
 __24/01__ - Death to All @ Carioca Club [Ingressos](https://www.clubedoingresso.com/evento/deathtoall-saopaulo)  
@@ -393,3 +392,4 @@ __20/02__ - Bad Bunny @ Allianz Parque :brazil: [Ingresso](https://www.ticketmas
 __04/04__ - Mac DeMarco @ Audio :brazil: [Ingresso](https://ingresse.com/macdemarco-sp/)  
 __15/10__ - The Gathering with Anneke @ Audio :brazil:  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
+
