@@ -379,7 +379,6 @@ __30/09__ - Ca7riel y Paco Amoroso @ Allianz Park :brazil:
 __30/09__ - Kendrick Lamar @ Allianz Park :brazil:  
 __13/11__ - Cavalera Conspiracy @ Espaço das Américas :brazil:  
 __13/11__ - Massive Attack @ Espaço das Américas :brazil:  
-
 __23/11__ - Ulcerate @ La Iglesia :brazil:  
 __30/11__ - Siena Root @ Fabrique Club :brazil:  
 __30/11__ - Boris @ Fabrique Club :brazil:  
@@ -396,6 +395,7 @@ __04/04__ - Mac DeMarco @ Audio :brazil: [Ingresso](https://ingresse.com/macdema
 __06/05__ - Men at Work @ Vibra SP :brazil: [Ingresso](https://www.ticketmaster.com.br/event/men-at-work-sao-paulo)  
 __15/10__ - The Gathering with Anneke @ Audio :brazil:  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
+
 
 
 
