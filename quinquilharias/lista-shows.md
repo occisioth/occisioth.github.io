@@ -387,16 +387,19 @@ __07/12__ - Mayhem @ VIP Station :brazil:
 ## upcoming  
 
 ## 2026
-__18/01__ - Dark Tranquility @ Carioca Club [Ingressos](https://www.clubedoingresso.com/evento/darktranquillity-sp)  
-__24/01__ - Death to All @ Carioca Club [Ingressos](https://www.clubedoingresso.com/evento/deathtoall-saopaulo)  
-__26/01__ - Mr Bungle @ Cine Joia [Ingressos](https://www.eventim.com.br/event/mr-bungle-cine-joia-21051607/)  
-__08/02__ - Weather Systems @ Carioca Club [Ingressos](https://www.clubedoingresso.com/evento/weathersystem-saopaulo)  
-__20/02__ - Bad Bunny @ Allianz Parque :brazil: [Ingresso](https://www.ticketmaster.com.br/event/bad-bunny-venda-geral)  
+__18/01__ - Dark Tranquility @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/darktranquillity-sp)  
+__24/01__ - Death to All @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/deathtoall-saopaulo)  
+__26/01__ - Mr Bungle @ Cine Joia :brazil: [Ingressos](https://www.eventim.com.br/event/mr-bungle-cine-joia-21051607/)  
+__08/02__ - Weather Systems @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/weathersystem-saopaulo)  
+__21/02__ - Bad Bunny @ Allianz Parque :brazil: [Ingresso](https://www.ticketmaster.com.br/event/bad-bunny-venda-geral)  
 __04/04__ - Mac DeMarco @ Audio :brazil: [Ingresso](https://ingresse.com/macdemarco-sp/)  
 __06/05__ - Men at Work @ Vibra SP :brazil: [Ingresso](https://www.ticketmaster.com.br/event/men-at-work-sao-paulo)  
-__08/09__ - Bloodbath @ Carioca Club  
+__16/05__ - Draconian @ Carioca Club :brazil: [Ingresso](https://fastix.com.br/events/draconian-emma-ruth-rundle-em-sao-paulo)  
+__16/05__ - Emma Ruth Rundle @ Carioca Club :brazil:  
+__08/09__ - Bloodbath @ Carioca Club :brazil:  
 __15/10__ - The Gathering with Anneke @ Audio :brazil:  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
+
 
 
 
