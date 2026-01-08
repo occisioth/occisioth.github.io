@@ -387,6 +387,8 @@ __07/12__ - Mayhem @ VIP Station :brazil:
 ## upcoming  
 
 ## 2026
+__16/01__ - Cynic @ Burning House :brazil: [Ingressos](https://101tickets.com.br/events/details/Cynic-e-Imperial-Triumphant-em-Sao-Paulo)  
+__16/01__ - Imperial Triumphant @ Burning House :brazil:  
 __18/01__ - Dark Tranquility @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/darktranquillity-sp)  
 __24/01__ - Death to All @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/deathtoall-saopaulo)  
 __26/01__ - Mr Bungle @ Cine Joia :brazil: [Ingressos](https://www.eventim.com.br/event/mr-bungle-cine-joia-21051607/)  
@@ -399,6 +401,7 @@ __16/05__ - Emma Ruth Rundle @ Carioca Club :brazil:
 __08/09__ - Bloodbath @ Carioca Club :brazil:  
 __15/10__ - The Gathering with Anneke @ Audio :brazil:  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
+
 
 
 
