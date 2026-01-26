@@ -387,9 +387,9 @@ __07/12__ - Mayhem @ VIP Station :brazil:
 ## upcoming  
 __16/01__ - Imperial Triumphant @ Burning House :brazil:  
 __18/01__ - Dark Tranquility @ Carioca Club :brazil:  
+__24/01__ - Death to All @ Carioca Club :brazil:  
 
 ## 2026
-__24/01__ - Death to All @ Carioca Club :brazil:  
 __26/01__ - Mr Bungle @ Cine Joia :brazil: [Ingressos](https://www.eventim.com.br/event/mr-bungle-cine-joia-21051607/)  
 __08/02__ - Weather Systems @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/weathersystem-saopaulo)  
 __21/02__ - Bad Bunny @ Allianz Parque :brazil: [Ingresso](https://www.ticketmaster.com.br/event/bad-bunny-venda-geral)  
@@ -408,6 +408,7 @@ __16/05__ - Emma Ruth Rundle @ Carioca Club :brazil:
 __08/09__ - Bloodbath @ Carioca Club :brazil:  
 __15/10__ - The Gathering with Anneke @ Audio :brazil:  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
+
 
 
 
