@@ -408,6 +408,8 @@ __16/05__ - Emma Ruth Rundle @ Carioca Club :brazil:
 __08/09__ - Bloodbath @ Carioca Club :brazil:  
 __15/10__ - The Gathering with Anneke @ Audio :brazil:  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
+__06/11__ - Opeth @ Espaço Unimed :brazil: Ingresso TBC  
+
 
 
 
