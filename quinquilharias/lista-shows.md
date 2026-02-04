@@ -390,7 +390,8 @@ __18/01__ - Dark Tranquility @ Carioca Club :brazil:
 __24/01__ - Death to All @ Carioca Club :brazil:  
 
 ## 2026
-__26/01__ - Mr Bungle @ Cine Joia :brazil: [Ingressos](https://www.eventim.com.br/event/mr-bungle-cine-joia-21051607/)  
+__05/02__ - Infamous Glory @ La Iglesia :brazil:  
+__07/02__ - Infamous Glory @ Vendetta Fest X, Osasco :brazil:  
 __08/02__ - Weather Systems @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/weathersystem-saopaulo)  
 __21/02__ - Bad Bunny @ Allianz Parque :brazil: [Ingresso](https://www.ticketmaster.com.br/event/bad-bunny-venda-geral)  
 __20/03__ - [Lollapalooza] Deftones @ Autodromo de Interlagos :brazil:  
@@ -401,7 +402,8 @@ __20/03__ - [Lollapalooza] Men I Trust @ Autodromo de Interlagos :brazil:
 __20/03__ - [Lollapalooza] Blood Orange @ Autodromo de Interlagos :brazil:  
 __20/03__ - [Lollapalooza] Ruel @ Autodromo de Interlagos :brazil:  
 __20/03__ - [Lollapalooza] DJ Diesel @ Autodromo de Interlagos :brazil:  
-__04/04__ - Mac DeMarco @ Audio :brazil: [Ingresso](https://ingresse.com/macdemarco-sp/)  
+__04/04__ - Infamous Glory @ Nomades Beer Garden, Piracicaba :brazil:  
+__05/04__ - Mac DeMarco @ Audio :brazil: [Ingresso](https://ingresse.com/macdemarco-sp2/)  
 __06/05__ - Men at Work @ Vibra SP :brazil: [Ingresso](https://www.ticketmaster.com.br/event/men-at-work-sao-paulo)  
 __16/05__ - Draconian @ Carioca Club :brazil: [Ingresso](https://fastix.com.br/events/draconian-emma-ruth-rundle-em-sao-paulo)  
 __16/05__ - Emma Ruth Rundle @ Carioca Club :brazil:  
@@ -409,6 +411,7 @@ __08/09__ - Bloodbath @ Carioca Club :brazil:
 __15/10__ - The Gathering with Anneke @ Audio :brazil:  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
 __06/11__ - Opeth @ Espaço Unimed :brazil: Ingresso TBC  
+
 
 
 
