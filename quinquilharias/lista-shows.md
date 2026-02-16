@@ -384,14 +384,14 @@ __30/11__ - Siena Root @ Fabrique Club :brazil:
 __30/11__ - Boris @ Fabrique Club :brazil:  
 __07/12__ - Mayhem @ VIP Station :brazil: 
 
-## upcoming  
+## 2026
 __16/01__ - Imperial Triumphant @ Burning House :brazil:  
 __18/01__ - Dark Tranquility @ Carioca Club :brazil:  
 __24/01__ - Death to All @ Carioca Club :brazil:  
-
-## 2026
 __05/02__ - Infamous Glory @ La Iglesia :brazil:  
 __07/02__ - Infamous Glory @ Vendetta Fest X, Osasco :brazil:  
+
+## upcoming  
 __08/02__ - Weather Systems @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/weathersystem-saopaulo)  
 __21/02__ - Bad Bunny @ Allianz Parque :brazil: [Ingresso](https://www.ticketmaster.com.br/event/bad-bunny-venda-geral)  
 __20/03__ - [Lollapalooza] Deftones @ Autodromo de Interlagos :brazil:  
@@ -410,7 +410,8 @@ __16/05__ - Emma Ruth Rundle @ Carioca Club :brazil:
 __08/09__ - Bloodbath @ Carioca Club :brazil:  
 __15/10__ - The Gathering with Anneke @ Audio :brazil:  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
-__06/11__ - Opeth @ Espaço Unimed :brazil: Ingresso TBC  
+__06/11__ - Opeth @ Espaço Unimed :brazil: [Ingresso](https://www.eventim.com.br/event/opeth-espaco-unimed-21247936/)  
+
 
 
 
