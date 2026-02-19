@@ -392,8 +392,8 @@ __05/02__ - Infamous Glory @ La Iglesia :brazil:
 __07/02__ - Infamous Glory @ Vendetta Fest X, Osasco :brazil:  
 
 ## upcoming  
-__08/02__ - Weather Systems @ Carioca Club :brazil: [Ingressos](https://www.clubedoingresso.com/evento/weathersystem-saopaulo)  
-__21/02__ - Bad Bunny @ Allianz Parque :brazil: [Ingresso](https://www.ticketmaster.com.br/event/bad-bunny-venda-geral)  
+__08/03__ - Infamous Glory @ Bar Phomet, Varzea Paulista :brazil:  
+__08/03__ - Escarnium @ Bar Phomet, Varzea Paulista :brazil:  
 __20/03__ - [Lollapalooza] Deftones @ Autodromo de Interlagos :brazil:  
 __20/03__ - [Lollapalooza] Doechii @ Autodromo de Interlagos :brazil:  
 __20/03__ - [Lollapalooza] Sabrina Carpenter @ Autodromo de Interlagos :brazil:  
@@ -411,6 +411,7 @@ __08/09__ - Bloodbath @ Carioca Club :brazil:
 __15/10__ - The Gathering with Anneke @ Audio :brazil:  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
 __06/11__ - Opeth @ Espaço Unimed :brazil: [Ingresso](https://www.eventim.com.br/event/opeth-espaco-unimed-21247936/)  
+
 
 
 
