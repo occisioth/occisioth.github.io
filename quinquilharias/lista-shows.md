@@ -402,6 +402,7 @@ __20/03__ - [Lollapalooza] Men I Trust @ Autodromo de Interlagos :brazil:
 __20/03__ - [Lollapalooza] Blood Orange @ Autodromo de Interlagos :brazil:  
 __20/03__ - [Lollapalooza] Ruel @ Autodromo de Interlagos :brazil:  
 __20/03__ - [Lollapalooza] DJ Diesel @ Autodromo de Interlagos :brazil:  
+__22/03__ - Nile @ Burning house :brazil: [Ingresso](https://101tickets.com.br/events/details/Nile-em-Sao-Paulo)  
 __04/04__ - Infamous Glory @ Nomades Beer Garden, Piracicaba :brazil:  
 __05/04__ - Mac DeMarco @ Audio :brazil: [Ingresso](https://ingresse.com/macdemarco-sp2/)  
 __06/05__ - Men at Work @ Vibra SP :brazil: [Ingresso](https://www.ticketmaster.com.br/event/men-at-work-sao-paulo)  
@@ -411,6 +412,7 @@ __08/09__ - Bloodbath @ Carioca Club :brazil:
 __15/10__ - The Gathering with Anneke @ Audio :brazil:  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
 __06/11__ - Opeth @ Espaço Unimed :brazil: [Ingresso](https://www.eventim.com.br/event/opeth-espaco-unimed-21247936/)  
+
 
 
 
