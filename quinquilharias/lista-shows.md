@@ -414,7 +414,8 @@ __31/10__ - Benediction @ TBC :brazil: Ingresso TBC
 __06/11__ - Opeth @ Espaço Unimed :brazil: [Ingresso](https://www.eventim.com.br/event/opeth-espaco-unimed-21247936/)  
 
 ## 2027
-__24/01__ - Rush @ Allianz Parque :brazil: [Ingresso](https://www.eventim.com.br/campaign/rush)  
+__24/01__ - Rush @ Allianz Parque :brazil:  
+
 
 
 
