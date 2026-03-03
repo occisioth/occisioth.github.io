@@ -410,12 +410,13 @@ __16/05__ - Draconian @ Carioca Club :brazil: [Ingresso](https://fastix.com.br/e
 __16/05__ - Emma Ruth Rundle @ Carioca Club :brazil:  
 __08/09__ - Bloodbath @ Carioca Club :brazil:  
 __15/10__ - The Gathering with Anneke @ Audio :brazil:  
-__18/10__ - Amorphis @ Carioca Club :brazil [Ingresso - TBC]()  
+__18/10__ - Amorphis @ Carioca Club :brazil: [Ingresso - TBC]()  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
 __06/11__ - Opeth @ Espaço Unimed :brazil: [Ingresso](https://www.eventim.com.br/event/opeth-espaco-unimed-21247936/)  
 
 ## 2027
 __24/01__ - Rush @ Allianz Parque :brazil:  
+
 
 
 
