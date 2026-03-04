@@ -416,6 +416,7 @@ __06/11__ - Opeth @ Espaço Unimed :brazil: [Ingresso](https://www.eventim.com.b
 
 ## 2027
 __24/01__ - Rush @ Allianz Parque :brazil:  
+__26/01__ - Rush @ Allianz Parque :brazil:  
 
 
 
