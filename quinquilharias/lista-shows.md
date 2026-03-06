@@ -405,6 +405,7 @@ __20/03__ - [Lollapalooza] DJ Diesel @ Autodromo de Interlagos :brazil:
 __22/03__ - Nile @ Burning house :brazil: [Ingresso](https://101tickets.com.br/events/details/Nile-em-Sao-Paulo)  
 __04/04__ - Infamous Glory @ Nomades Beer Garden, Piracicaba :brazil:  
 __05/04__ - Mac DeMarco @ Audio :brazil: [Ingresso](https://ingresse.com/macdemarco-sp2/)  
+__28/04__ - Nevermore @ Carioca Club :brazil:  
 __06/05__ - Men at Work @ Vibra SP :brazil: [Ingresso](https://www.ticketmaster.com.br/event/men-at-work-sao-paulo)  
 __16/05__ - Draconian @ Carioca Club :brazil: [Ingresso](https://fastix.com.br/events/draconian-emma-ruth-rundle-em-sao-paulo)  
 __16/05__ - Emma Ruth Rundle @ Carioca Club :brazil:  
@@ -417,6 +418,7 @@ __06/11__ - Opeth @ Espaço Unimed :brazil: [Ingresso](https://www.eventim.com.b
 ## 2027
 __24/01__ - Rush @ Allianz Parque :brazil:  
 __26/01__ - Rush @ Allianz Parque :brazil:  
+
 
 
 
