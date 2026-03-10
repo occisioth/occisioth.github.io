@@ -390,10 +390,11 @@ __18/01__ - Dark Tranquility @ Carioca Club :brazil:
 __24/01__ - Death to All @ Carioca Club :brazil:  
 __05/02__ - Infamous Glory @ La Iglesia :brazil:  
 __07/02__ - Infamous Glory @ Vendetta Fest X, Osasco :brazil:  
-
-## upcoming  
+__08/03__ - Soulrazer @ Bar Phomet, Varzea Paulista :brazil:  
 __08/03__ - Infamous Glory @ Bar Phomet, Varzea Paulista :brazil:  
 __08/03__ - Escarnium @ Bar Phomet, Varzea Paulista :brazil:  
+
+## upcoming  
 __20/03__ - [Lollapalooza] Deftones @ Autodromo de Interlagos :brazil:  
 __20/03__ - [Lollapalooza] Doechii @ Autodromo de Interlagos :brazil:  
 __20/03__ - [Lollapalooza] Sabrina Carpenter @ Autodromo de Interlagos :brazil:  
@@ -402,14 +403,13 @@ __20/03__ - [Lollapalooza] Men I Trust @ Autodromo de Interlagos :brazil:
 __20/03__ - [Lollapalooza] Blood Orange @ Autodromo de Interlagos :brazil:  
 __20/03__ - [Lollapalooza] Ruel @ Autodromo de Interlagos :brazil:  
 __20/03__ - [Lollapalooza] DJ Diesel @ Autodromo de Interlagos :brazil:  
-__22/03__ - Nile @ Burning house :brazil: [Ingresso](https://101tickets.com.br/events/details/Nile-em-Sao-Paulo)  
+__22/03__ - Moonspell @ Carioca club :brazil:  
 __04/04__ - Infamous Glory @ Nomades Beer Garden, Piracicaba :brazil:  
-__05/04__ - Mac DeMarco @ Audio :brazil: [Ingresso](https://ingresse.com/macdemarco-sp2/)  
 __28/04__ - Nevermore @ Carioca Club :brazil:  
 __06/05__ - Men at Work @ Vibra SP :brazil: [Ingresso](https://www.ticketmaster.com.br/event/men-at-work-sao-paulo)  
 __16/05__ - Draconian @ Carioca Club :brazil: [Ingresso](https://fastix.com.br/events/draconian-emma-ruth-rundle-em-sao-paulo)  
 __16/05__ - Emma Ruth Rundle @ Carioca Club :brazil:  
-__08/09__ - Bloodbath @ Carioca Club :brazil:  
+__08/09__ - Bloodbath @ Carioca Club :brazil: [Ingresso - TBC]()  
 __15/10__ - The Gathering with Anneke @ Audio :brazil:  
 __18/10__ - Amorphis @ Carioca Club :brazil: [Ingresso - TBC]()  
 __31/10__ - Benediction @ TBC :brazil: Ingresso TBC  
@@ -418,6 +418,7 @@ __06/11__ - Opeth @ Espaço Unimed :brazil: [Ingresso](https://www.eventim.com.b
 ## 2027
 __24/01__ - Rush @ Allianz Parque :brazil:  
 __26/01__ - Rush @ Allianz Parque :brazil:  
+
 
 
 
