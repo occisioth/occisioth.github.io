@@ -393,17 +393,18 @@ __07/02__ - Infamous Glory @ Vendetta Fest X, Osasco :brazil:
 __08/03__ - Soulrazer @ Bar Phomet, Varzea Paulista :brazil:  
 __08/03__ - Infamous Glory @ Bar Phomet, Varzea Paulista :brazil:  
 __08/03__ - Escarnium @ Bar Phomet, Varzea Paulista :brazil:  
-
-## upcoming  
 __20/03__ - [Lollapalooza] Deftones @ Autodromo de Interlagos :brazil:  
-__20/03__ - [Lollapalooza] Doechii @ Autodromo de Interlagos :brazil:  
 __20/03__ - [Lollapalooza] Sabrina Carpenter @ Autodromo de Interlagos :brazil:  
 __20/03__ - [Lollapalooza] Interpol @ Autodromo de Interlagos :brazil:  
 __20/03__ - [Lollapalooza] Men I Trust @ Autodromo de Interlagos :brazil:  
-__20/03__ - [Lollapalooza] Blood Orange @ Autodromo de Interlagos :brazil:  
-__20/03__ - [Lollapalooza] Ruel @ Autodromo de Interlagos :brazil:  
+__20/03__ - [Lollapalooza] Horsegiirl @ Autodromo de Interlagos :brazil:  
 __20/03__ - [Lollapalooza] DJ Diesel @ Autodromo de Interlagos :brazil:  
+__21/03__ - [Lollapalooza] Cypress Hill @ Autodromo de Interlagos :brazil:  
+__21/03__ - [Lollapalooza] Skrillex @ Autodromo de Interlagos :brazil:  
+__21/03__ - [Lollapalooza] The Warning @ Autodromo de Interlagos :brazil:  
 __22/03__ - Moonspell @ Carioca club :brazil:  
+
+## upcoming  
 __04/04__ - Infamous Glory @ Nomades Beer Garden, Piracicaba :brazil:  
 __28/04__ - Nevermore @ Carioca Club :brazil:  
 __06/05__ - Men at Work @ Vibra SP :brazil: [Ingresso](https://www.ticketmaster.com.br/event/men-at-work-sao-paulo)  
