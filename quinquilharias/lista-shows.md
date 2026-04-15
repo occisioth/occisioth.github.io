@@ -406,9 +406,9 @@ __22/03__ - Moonspell @ Carioca club :brazil:
 __04/04__ - O Infortuno @ Nomades Beer Garden, Piracicaba :brazil:  
 __04/04__ - Cadaveric Remains @ Nomades Beer Garden, Piracicaba :brazil:  
 __04/04__ - Infamous Glory @ Nomades Beer Garden, Piracicaba :brazil:  
+__10/04__ - Robert Lowe @ Iglesia :brazil:  
 
 ## upcoming  
-__10/04__ - Robert Lowe @ Iglesia :brazil: ✔️  
 __28/04__ - Nevermore @ Carioca Club :brazil: ✔️  
 __06/05__ - Men at Work @ Vibra SP :brazil: [Ingresso](https://www.ticketmaster.com.br/event/men-at-work-sao-paulo)  
 __16/05__ - Draconian @ Carioca Club :brazil: [Ingresso](https://fastix.com.br/events/draconian-emma-ruth-rundle-em-sao-paulo)  
