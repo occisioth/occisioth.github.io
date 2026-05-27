@@ -407,15 +407,15 @@ __04/04__ - O Infortuno @ Nomades Beer Garden, Piracicaba :brazil:
 __04/04__ - Cadaveric Remains @ Nomades Beer Garden, Piracicaba :brazil:  
 __04/04__ - Infamous Glory @ Nomades Beer Garden, Piracicaba :brazil:  
 __10/04__ - Robert Lowe @ Iglesia :brazil:  
+__28/04__ - Nevermore @ Carioca Club :brazil: ✔️  
+__06/05__ - Men at Work @ Vibra SP :brazil:  
 
 ## upcoming  
-__28/04__ - Nevermore @ Carioca Club :brazil: ✔️  
-__06/05__ - Men at Work @ Vibra SP :brazil: [Ingresso](https://www.ticketmaster.com.br/event/men-at-work-sao-paulo)  
-__16/05__ - Draconian @ Carioca Club :brazil: [Ingresso](https://fastix.com.br/events/draconian-emma-ruth-rundle-em-sao-paulo)  
-__16/05__ - Emma Ruth Rundle @ Carioca Club :brazil:  
-__20/05__ - Cult of Fire @ Burning House :brazil: [Ingresso](https://101tickets.com.br/events/details/Cult-of-Fire-em-Sao-Paulo-20)  
+__16/06__ - Liturgy @ TBC :brazil:  
+__03_07__ - Pigs Pigs Pigs Pigs Pigs Pigs Pigs @ Fabrique Club :brazil:  
 __11/08__ - Swallow the Sun @ Hangar 110 :brazil:  [Ingresso](https://www.clubedoingresso.com/evento/swallowthesun)  
-__08/09__ - Bloodbath @ Carioca Club :brazil: __Ingresso - TBC__  
+__08/09__ - Bloodbath @ Carioca Club :brazil: ✔️  
+__13/09__ - Jamiroquai @ Allianz Park :brazil:  
 __15/10__ - The Gathering with Anneke @ Audio :brazil: ✔️  
 __18/10__ - Amorphis @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/amorphis-saopaulo)  
 __31/10__ - Benediction @ TBC :brazil: [Ingresso](https://101tickets.com.br/events/details/Benediction-em-Sao-Paulo)  
