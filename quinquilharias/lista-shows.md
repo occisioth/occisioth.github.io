@@ -407,11 +407,10 @@ __04/04__ - O Infortuno @ Nomades Beer Garden, Piracicaba :brazil:
 __04/04__ - Cadaveric Remains @ Nomades Beer Garden, Piracicaba :brazil:  
 __04/04__ - Infamous Glory @ Nomades Beer Garden, Piracicaba :brazil:  
 __10/04__ - Robert Lowe @ Iglesia :brazil:  
-__28/04__ - Nevermore @ Carioca Club :brazil: ✔️  
+__28/04__ - Nevermore @ Carioca Club :brazil:  
 __06/05__ - Men at Work @ Vibra SP :brazil:  
 
 ## upcoming  
-__16/06__ - Liturgy @ TBC :brazil: ✔️  
 __03/07__ - Pigs Pigs Pigs Pigs Pigs Pigs Pigs @ Fabrique Club :brazil:  
 __12/07__ - Riot @ Manifesto Bar :brazil: ✔️  
 __11/08__ - Swallow the Sun @ Hangar 110 :brazil:  [Ingresso](https://www.clubedoingresso.com/evento/swallowthesun)  
