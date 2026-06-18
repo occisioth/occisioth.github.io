@@ -420,6 +420,7 @@ __15/10__ - The Gathering with Anneke @ Audio :brazil: ✔️
 __18/10__ - Amorphis @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/amorphis-saopaulo)  
 __31/10__ - Benediction @ TBC :brazil: [Ingresso](https://101tickets.com.br/events/details/Benediction-em-Sao-Paulo)  
 __06/11__ - Opeth @ Espaço Unimed :brazil: [Ingresso](https://www.eventim.com.br/event/opeth-espaco-unimed-21247936/)  
+__23/11__ - Godspeed You! Black Emperor @ Audio :brazil: ✔️  
 __24/11__ - Dying Fetus @ Carioca Club :brazil: __Ingresso TBC__  
 
 ## 2027
