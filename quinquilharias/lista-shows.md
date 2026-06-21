@@ -416,6 +416,7 @@ __12/07__ - Riot @ Manifesto Bar :brazil: ✔️
 __11/08__ - Swallow the Sun @ Hangar 110 :brazil:  [Ingresso](https://www.clubedoingresso.com/evento/swallowthesun)  
 __08/09__ - Bloodbath @ Carioca Club :brazil: ✔️  
 __13/09__ - Jamiroquai @ Allianz Park :brazil: ✔️  
+__19/09__ - Lifelover @ Burning House :brazil: (Ingresso)[https://101tickets.com.br/events/details/Lifelover-em-Sao-Paulo]  
 __15/10__ - The Gathering with Anneke @ Audio :brazil: ✔️  
 __18/10__ - Amorphis @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/amorphis-saopaulo)  
 __31/10__ - Benediction @ TBC :brazil: [Ingresso](https://101tickets.com.br/events/details/Benediction-em-Sao-Paulo)  
