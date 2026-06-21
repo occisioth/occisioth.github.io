@@ -413,16 +413,16 @@ __06/05__ - Men at Work @ Vibra SP :brazil:
 ## upcoming  
 __03/07__ - Pigs Pigs Pigs Pigs Pigs Pigs Pigs @ Fabrique Club :brazil:  
 __12/07__ - Riot @ Manifesto Bar :brazil: ✔️  
-__11/08__ - Swallow the Sun @ Hangar 110 :brazil:  (Ingresso)[https://www.clubedoingresso.com/evento/swallowthesun]  
+__11/08__ - Swallow the Sun @ Hangar 110 :brazil:  [Ingresso](https://www.clubedoingresso.com/evento/swallowthesun)  
 __08/09__ - Bloodbath @ Carioca Club :brazil: ✔️  
 __13/09__ - Jamiroquai @ Allianz Park :brazil: ✔️  
-__19/09__ - Lifelover @ Burning House :brazil: (Ingresso)[https://101tickets.com.br/events/details/Lifelover-em-Sao-Paulo]  
+__19/09__ - Lifelover @ Burning House :brazil: [Ingresso](https://101tickets.com.br/events/details/Lifelover-em-Sao-Paulo)  
 __15/10__ - The Gathering with Anneke @ Audio :brazil: ✔️  
 __18/10__ - Amorphis @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/amorphis-saopaulo)  
-__31/10__ - Benediction @ TBC :brazil: [Ingresso](https://101tickets.com.br/events/details/Benediction-em-Sao-Paulo)  
+__31/10__ - Benediction @ Burning House :brazil: [Ingresso](https://101tickets.com.br/events/details/Benediction-em-Sao-Paulo)  
 __06/11__ - Opeth @ Espaço Unimed :brazil: [Ingresso](https://www.eventim.com.br/event/opeth-espaco-unimed-21247936/)  
 __23/11__ - Godspeed You! Black Emperor @ Audio :brazil: ✔️  
-__24/11__ - Dying Fetus @ Carioca Club :brazil: __Ingresso TBC__  
+__24/11__ - Dying Fetus @ Burning House :brazil: [Ingresso](https://101tickets.com.br/events/details/Dying-Fetus-em-Sao-Paulo)  
 
 ## 2027
 __24/01__ - Rush @ Allianz Parque :brazil:  
