@@ -411,7 +411,6 @@ __28/04__ - Nevermore @ Carioca Club :brazil:
 __06/05__ - Men at Work @ Vibra SP :brazil:  
 
 ## upcoming  
-__03/07__ - Pigs Pigs Pigs Pigs Pigs Pigs Pigs @ Fabrique Club :brazil:  
 __12/07__ - Riot @ Manifesto Bar :brazil: ✔️  
 __11/08__ - Swallow the Sun @ Hangar 110 :brazil:  [Ingresso](https://www.clubedoingresso.com/evento/swallowthesun)  
 __08/09__ - Bloodbath @ Carioca Club :brazil: ✔️  
