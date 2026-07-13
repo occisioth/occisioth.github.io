@@ -414,18 +414,25 @@ __12/07__ - Riot @ Manifesto Bar :brazil:
 ## upcoming  
 __11/08__ - Swallow the Sun @ Hangar 110 :brazil:  [Ingresso](https://www.clubedoingresso.com/evento/swallowthesun)  
 __08/09__ - Bloodbath @ Carioca Club :brazil: ✔️  
+__08/09__ - The Haunted @ Carioca Club :brazil: ✔️  
 __13/09__ - Jamiroquai @ Allianz Park :brazil: ✔️  
+__17/09__ - Toe @ Cine Joia :brazil: [Ingresso](https://ingresse.com/toe-sp/)  
 __19/09__ - Lifelover @ Burning House :brazil: [Ingresso](https://101tickets.com.br/events/details/Lifelover-em-Sao-Paulo)  
+__04/10__ - High on Fire @ Burning House :brazil: [Ingresso](https://101tickets.com.br/events/details/High-on-fire-em-Sao-Paulo)  
 __15/10__ - The Gathering with Anneke @ Audio :brazil: ✔️  
 __18/10__ - Amorphis @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/amorphis-saopaulo)  
 __31/10__ - Benediction @ Burning House :brazil: [Ingresso](https://101tickets.com.br/events/details/Benediction-em-Sao-Paulo)  
 __06/11__ - Opeth @ Espaço Unimed :brazil: [Ingresso](https://www.eventim.com.br/event/opeth-espaco-unimed-21247936/)  
 __23/11__ - Godspeed You! Black Emperor @ Audio :brazil: ✔️  
 __24/11__ - Dying Fetus @ Burning House :brazil: [Ingresso](https://101tickets.com.br/events/details/Dying-Fetus-em-Sao-Paulo)  
+__25/11__ - Of Monsters and Men @ Audio :brazil: [Ingresso](https://www.ingresse.com/omam-sp-extra/)  
+__17/12__ - Slayer @ Allianz Park :brazil: ✔️  
+__19/12__ - Lionel Richie @ Allianz Park :brazil: [Ingresso](https://www.eventim.com.br/event/lionel-richie-nubank-parque-21762311)  
 
 ## 2027
-__24/01__ - Rush @ Allianz Parque :brazil:  
-__26/01__ - Rush @ Allianz Parque :brazil:  
+__16/01__ - Hellripper @ Burning house :brazil: [Ingresso](https://101tickets.com.br/events/details/Hellripper-em-Sao-Paulo-16-01-2027)  
+__24/01__ - Rush @ Allianz Parque :brazil: ✔️   
+__26/01__ - Rush @ Allianz Parque :brazil: ✔️   
 
 
 
