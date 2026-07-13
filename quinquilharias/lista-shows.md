@@ -409,9 +409,9 @@ __04/04__ - Infamous Glory @ Nomades Beer Garden, Piracicaba :brazil:
 __10/04__ - Robert Lowe @ Iglesia :brazil:  
 __28/04__ - Nevermore @ Carioca Club :brazil:  
 __06/05__ - Men at Work @ Vibra SP :brazil:  
+__12/07__ - Riot @ Manifesto Bar :brazil:  
 
 ## upcoming  
-__12/07__ - Riot @ Manifesto Bar :brazil: ✔️  
 __11/08__ - Swallow the Sun @ Hangar 110 :brazil:  [Ingresso](https://www.clubedoingresso.com/evento/swallowthesun)  
 __08/09__ - Bloodbath @ Carioca Club :brazil: ✔️  
 __13/09__ - Jamiroquai @ Allianz Park :brazil: ✔️  
