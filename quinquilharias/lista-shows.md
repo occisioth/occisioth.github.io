@@ -419,8 +419,8 @@ __13/09__ - Jamiroquai @ Allianz Park :brazil: ✔️
 __17/09__ - Toe @ Cine Joia :brazil: [Ingresso](https://ingresse.com/toe-sp/)  
 __19/09__ - Lifelover @ Burning House :brazil: [Ingresso](https://101tickets.com.br/events/details/Lifelover-em-Sao-Paulo)  
 __04/10__ - High on Fire @ Burning House :brazil: [Ingresso](https://101tickets.com.br/events/details/High-on-fire-em-Sao-Paulo)  
-__08/10__ - Infamous Glory @ Burning House :brazil:  
-__08/10__ - Grave @ Burning House :brazil:  
+__08/10__ - Infamous Glory @ Burning House :brazil: ✔️   
+__08/10__ - Grave @ Burning House :brazil: ✔️  
 __15/10__ - The Gathering with Anneke @ Audio :brazil: ✔️  
 __18/10__ - Amorphis @ Carioca Club :brazil: [Ingresso](https://www.clubedoingresso.com/evento/amorphis-saopaulo)  
 __31/10__ - Benediction @ Burning House :brazil: [Ingresso](https://101tickets.com.br/events/details/Benediction-em-Sao-Paulo)  
