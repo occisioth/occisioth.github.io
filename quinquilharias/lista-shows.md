@@ -427,7 +427,7 @@ __31/10__ - Benediction @ Burning House :brazil: [Ingresso](https://101tickets.c
 __06/11__ - Opeth @ Espaço Unimed :brazil: [Ingresso](https://www.eventim.com.br/event/opeth-espaco-unimed-21247936/)  
 __23/11__ - Godspeed You! Black Emperor @ Audio :brazil: ✔️  
 __24/11__ - Dying Fetus @ Burning House :brazil: [Ingresso](https://101tickets.com.br/events/details/Dying-Fetus-em-Sao-Paulo)  
-__27/11__ - Puscifer @ Suhai Music Hall :brazil: [Ingresso](https://www.ticketmaster.com.br/event/a-perfect-circle-puscifer)  
+__27/11__ - Puscifer @ Suhai Music Hall :brazil:  
 __27/11__ - A Perfect Circle @ Suhai Music Hall :brazil:  
 __29/11__ - My Dying Bride @ Fabrique Club :brazil: ✔️  
 __17/12__ - Slayer @ Allianz Park :brazil: ✔️  
