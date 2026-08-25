@@ -412,7 +412,6 @@ __06/05__ - Men at Work @ Vibra SP :brazil:
 __12/07__ - Riot @ Manifesto Bar :brazil:  
 
 ## upcoming  
-__11/08__ - Swallow the Sun @ Hangar 110 :brazil:  [Ingresso](https://www.clubedoingresso.com/evento/swallowthesun)  
 __08/09__ - Bloodbath @ Carioca Club :brazil: ✔️  
 __08/09__ - The Haunted @ Carioca Club :brazil: ✔️  
 __13/09__ - Jamiroquai @ Allianz Park :brazil: ✔️  
@@ -435,6 +434,10 @@ __19/12__ - Lionel Richie @ Allianz Park :brazil: [Ingresso](https://www.eventim
 
 ## 2027
 __16/01__ - Hellripper @ Burning house :brazil: [Ingresso](https://101tickets.com.br/events/details/Hellripper-em-Sao-Paulo-16-01-2027)  
+__23/01__ - Melvins @ Komplexo Tempo :brazil: ✔️  
+__23/01__ - Boris @ Komplexo Tempo :brazil: ✔️  
+__23/01__ - Osees @ Komplexo Tempo :brazil: ✔️  
+__23/01__ - Frankie and the Witch Fingers @ Komplexo Tempo :brazil: ✔️  
 __24/01__ - Rush @ Allianz Parque :brazil: ✔️   
 __26/01__ - Rush @ Allianz Parque :brazil: ✔️   
 
