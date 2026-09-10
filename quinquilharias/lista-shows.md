@@ -410,10 +410,10 @@ __10/04__ - Robert Lowe @ Iglesia :brazil:
 __28/04__ - Nevermore @ Carioca Club :brazil:  
 __06/05__ - Men at Work @ Vibra SP :brazil:  
 __12/07__ - Riot @ Manifesto Bar :brazil:  
+__08/09__ - Bloodbath @ Carioca Club :brazil:  
+__08/09__ - The Haunted @ Carioca Club :brazil:  
 
 ## upcoming  
-__08/09__ - Bloodbath @ Carioca Club :brazil: ✔️  
-__08/09__ - The Haunted @ Carioca Club :brazil: ✔️  
 __13/09__ - Jamiroquai @ Allianz Park :brazil: ✔️  
 __17/09__ - Toe @ Cine Joia :brazil: [Ingresso](https://ingresse.com/toe-sp/)  
 __19/09__ - Lifelover @ Burning House :brazil: [Ingresso](https://101tickets.com.br/events/details/Lifelover-em-Sao-Paulo)  
