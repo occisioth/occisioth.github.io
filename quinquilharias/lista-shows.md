@@ -412,12 +412,9 @@ __06/05__ - Men at Work @ Vibra SP :brazil:
 __12/07__ - Riot @ Manifesto Bar :brazil:  
 __08/09__ - Bloodbath @ Carioca Club :brazil:  
 __08/09__ - The Haunted @ Carioca Club :brazil:  
+__13/09__ - Jamiroquai @ Allianz Park :brazil:  
 
 ## upcoming  
-__13/09__ - Jamiroquai @ Allianz Park :brazil: ✔️  
-__17/09__ - Toe @ Cine Joia :brazil: [Ingresso](https://ingresse.com/toe-sp/)  
-__19/09__ - Lifelover @ Burning House :brazil: [Ingresso](https://101tickets.com.br/events/details/Lifelover-em-Sao-Paulo)  
-__04/10__ - High on Fire @ Burning House :brazil: [Ingresso](https://101tickets.com.br/events/details/High-on-fire-em-Sao-Paulo)  
 __07/10__ - Infamous Glory @ Burning House :brazil: ✔️   
 __07/10__ - Grave @ Burning House :brazil: ✔️  
 __15/10__ - The Gathering with Anneke @ Audio :brazil: ✔️  
