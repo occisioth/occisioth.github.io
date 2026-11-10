@@ -418,8 +418,6 @@ __07/10__ - Grave @ Burning House :brazil: ✔️
 __15/10__ - The Gathering with Anneke @ Audio :brazil: ✔️  
 
 ## upcoming  
-__06/11__ - Opeth @ Espaço Unimed :brazil: [Ingresso](https://www.eventim.com.br/event/opeth-espaco-unimed-21247936/)  
-__23/11__ - Godspeed You! Black Emperor @ Audio :brazil: ✔️  
 __24/11__ - Dying Fetus @ Burning House :brazil: [Ingresso](https://101tickets.com.br/events/details/Dying-Fetus-em-Sao-Paulo)  
 __27/11__ - Puscifer @ Suhai Music Hall :brazil: ✔️  
 __27/11__ - A Perfect Circle @ Suhai Music Hall :brazil: ✔️  
