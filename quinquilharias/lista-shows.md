@@ -422,7 +422,10 @@ __24/11__ - Dying Fetus @ Burning House :brazil: [Ingresso](https://101tickets.c
 __27/11__ - Puscifer @ Suhai Music Hall :brazil: ✔️  
 __27/11__ - A Perfect Circle @ Suhai Music Hall :brazil: ✔️  
 __29/11__ - My Dying Bride @ Fabrique Club :brazil: ✔️  
+__29/11__ - Necrot @ Fabrique Club :brazil: ✔️  
+__29/11__ - Fossilization @ Fabrique Club :brazil: ✔️  
 __17/12__ - Slayer @ Allianz Park :brazil: ✔️  
+__06/12__ - [Primavera Sound] Gorillaz @ Autódromo de Interlagos :brazil: [Ingresso](https://www.ingresse.com/primavera-sound-sp-2026/)  
 __19/12__ - Lionel Richie @ Allianz Park :brazil: [Ingresso](https://www.eventim.com.br/event/lionel-richie-nubank-parque-21762311)  
 
 ## 2027
@@ -433,6 +436,31 @@ __23/01__ - Osees @ Komplexo Tempo :brazil: ✔️
 __23/01__ - Frankie and the Witch Fingers @ Komplexo Tempo :brazil: ✔️  
 __24/01__ - Rush @ Allianz Parque :brazil: ✔️   
 __26/01__ - Rush @ Allianz Parque :brazil: ✔️   
+__19/03__ - [Lollapalooza] Travis Scott @ Autódromo de Interlagos :brazil: [Ingresso](https://www.ticketmaster.com.br/event/lollapaloozabr)  
+__19/03__ - [Lollapalooza] David Guetta @ Autódromo de Interlagos :brazil:  
+__19/03__ - [Lollapalooza] Cage the Elephant @ Autódromo de Interlagos :brazil:  
+__19/03__ - [Lollapalooza] Angine de Poitrine @ Autódromo de Interlagos :brazil:  
+__19/03__ - [Lollapalooza] Nação Zumbi @ Autódromo de Interlagos :brazil:  
+__19/03__ - [Lollapalooza] Rawayana @ Autódromo de Interlagos :brazil:  
+__20/03__ - [Lollapalooza] The Killers @ Autódromo de Interlagos :brazil:  
+__20/03__ - [Lollapalooza] Queens of the Stone Age @ Autódromo de Interlagos :brazil:  
+__20/03__ - [Lollapalooza] Mike D 5D @ Autódromo de Interlagos :brazil:  
+__20/03__ - [Lollapalooza] Budang @ Autódromo de Interlagos :brazil:  
+__21/03__ - [Lollapalooza] Charli XCX @ Autódromo de Interlagos :brazil:  
+__21/03__ - [Lollapalooza] The Neighbourhood @ Autódromo de Interlagos :brazil:  
+__21/03__ - [Lollapalooza] Fontaines D.C. @ Autódromo de Interlagos :brazil:  
+__21/03__ - [Lollapalooza] The Prodigy @ Autódromo de Interlagos :brazil:  
+__21/03__ - [Lollapalooza] Boy Harsher @ Autódromo de Interlagos :brazil:  
+__25/04__ - [Bangers Open Air] King Diamond @ Memorial da América Latina :brazil: [Ingresso](https://www.clubedoingresso.com/evento/bangersopenair2027)  
+__25/04__ - [Bangers Open Air] Emperor @ Memorial da América Latina :brazil:  
+__25/04__ - [Bangers Open Air] Soilwork @ Memorial da América Latina :brazil:  
+__25/04__ - [Bangers Open Air] Metal Church @ Memorial da América Latina :brazil:  
+__25/04__ - [Bangers Open Air] Blaze Bayley @ Memorial da América Latina :brazil:  
+__25/04__ - [Bangers Open Air] Enforcer @ Memorial da América Latina :brazil:  
+__23/05__ - [C6 Fest] Beth Gibbons @ Parque Ibirapuera :brazil: [Ingresso](https://www.eventim.com.br/campaign/c6fest)  
+__26/10__ - Faith no More @ Allianz Parque :brazil: ✔️  
+__26/10__ - Alice in Chains @ Allianz Parque :brazil: ✔️  
+__26/10__ - Mastodon @ Allianz Parque :brazil: ✔️  
 
 
 
